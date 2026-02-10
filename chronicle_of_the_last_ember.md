@@ -135,3 +135,132 @@ They say that *Ael-Thora* is still written on some maps, for the error, once mad
 *One pleases the eye,*
 *The other bears the strain.*
 *—Fragment of a rhyme found in Caelum's desk.*
+
+---
+
+# The Tale of the Iron Bell
+
+*Recorded by the Hedge-Priests of the Low Valleys, three generations after the Breaking.*
+
+In the village of Oakhaven, they remember Eamon. In Vaelor, they speak of Caelum. But in the low, mist-choked valleys of the Fen, they tell the story of old Silas and the Iron Bell.
+
+The Bell hung in a tower that was not tall, but thick, built of black stones that wept moisture when the moon was new. It was not a church bell, for it called no one to prayer. It was not a warning bell, for it rang at the same hour every dawn, regardless of fire or flood. It was, simply, the Bell.
+
+Silas was its keeper. He was a man of few words and many aches. His left leg dragged a little, a memory of a fall in his youth, and his hands were gnarled like the roots of the willow trees that lined the marsh. Every morning, before the sun had burned the grey from the sky, Silas would climb the damp stairs. He would take hold of the heavy rope, rough with age, and he would pull.
+
+*Clang.*
+
+The sound was not musical. It was a flat, dull thud that seemed to bruise the air. It woke the babies, who cried. It woke the dogs, who barked. It woke the workers, who groaned.
+
+"Why must he ring it?" the new Mayor asked one day. The Mayor was a man of progress, with a velvet coat and a plan to drain the Fen for farmland. "It serves no purpose. It is a relic of a superstitious age."
+
+"It keeps the fog back," Silas said, leaning on his broom.
+
+The Mayor laughed, a reasonable, kindly laugh. "The sun keeps the fog back, old man. The wind keeps the fog back. A piece of iron hitting another piece of iron does nothing but disturb the peace."
+
+"My father rang it," Silas said stubbornly. "And his father. It must be rung."
+
+"But why?"
+
+Silas looked at the ground. "I do not know why. I only know that it must."
+
+The Mayor sighed. "We are building a new road through the valley. The engineers need their sleep. The Bell stops tomorrow."
+
+Silas did not argue. He was not a man of arguments. But the next morning, the Bell rang.
+
+*Clang.*
+
+The Mayor was displeased. He sent men to bar the door of the tower. They put a heavy padlock on the iron grate. "Go home, Silas," they said, not unkindly. "Rest. You have earned it."
+
+Silas went home. He sat by his small fire and rubbed his aching leg. He listened to the silence. It felt heavy, like a blanket soaked in water.
+
+That night, the fog came.
+
+It was not the usual mist that clung to the ankles. It was a thick, white wall that rolled in from the marshes. It smelled of stagnant water and old, wet fur. It muffled the sound of the crickets. It crept under the doors and through the cracks in the windows.
+
+In the morning, the sun did not rise. Or if it did, the fog had swallowed it. The village remained in a grey twilight. People woke late, their heads heavy, their dreams clinging to them like cobwebs.
+
+"A freak weather pattern," the Mayor declared. "It will pass."
+
+But it did not pass. Day after day, the fog thickened. The cattle stopped eating. The children stopped playing. A lethargy settled over the valley, a deep, narcotic sleepiness that made the simplest task feel like lifting a mountain.
+
+Silas sat in his cottage. He felt the sleep pressing on his eyes. He remembered the rhyme his father had hummed, a tune so simple he had almost forgotten it was a song.
+
+*Iron speaks to iron bone,*
+*Wakes the sleeper in the stone.*
+*If the iron voice be still,*
+*Shadows creep across the hill.*
+
+"The sleeper in the stone," Silas whispered.
+
+He stood up. His legs trembled. The air in the room was thick, resisting his movement. He walked to the door. Outside, the world was gone, erased by the white Nothing.
+
+He walked to the tower. The padlock was rusted shut, though it had been new only days before. The metal was cold, burning his fingers.
+
+"I have no key," Silas said.
+
+He looked at the stone wall. It was slick with slime. He was old. He was crippled. But he was available.
+
+He began to climb the outside of the tower, finding holds in the weeping masonry. His fingers bled. His bad leg dragged, a dead weight. The fog whispered to him. *Sleep,* it said. *Let go. It is so easy. Just let go.*
+
+He did not answer. He climbed.
+
+He reached the belfry, gasping, his heart fluttering like a trapped bird. The Bell hung silent, covered in a frost that looked like grey moss. The rope had been cut.
+
+Silas looked at the clapper. It was heavy, solid iron. He looked at the distance to the rim of the bell.
+
+He could not swing the clapper. He had no rope, and his arms were too weak to move the iron tongue.
+
+"Iron speaks to iron bone," he wheezed.
+
+He picked up a loose stone from the floor. It was not enough. The sound would be too small.
+
+He looked at his own hand. He looked at the Bell.
+
+"Courage arrives late," he muttered.
+
+He stepped close to the rim. He took the stone in his hand to add weight. And with the last of his strength, he threw himself—his shoulder, his arm, his side—against the metal rim, driving the stone and his own bones into the iron.
+
+*Crack.*
+
+The sound was not the dull thud of the clapper. It was a sharp, sickening crunch of bone against metal. But it made the Bell vibrate.
+
+*Huummmmm.*
+
+The sound was low, barely a whisper. But it was true. It was the sound of iron waking up.
+
+Silas fell to the floor, pain blinding him. But he saw the frost on the Bell shatter. He saw the fog outside the archway recoil, as if struck by a physical blow.
+
+He dragged himself up. He did not have the strength to throw himself again.
+
+But he saw the clapper swinging, just a fraction, moved by the vibration.
+
+He crawled beneath it. He lay on his back. He lifted his good leg, and he kicked the heavy iron tongue.
+
+It swung. It hit the rim.
+
+*CLANG.*
+
+The sound was loud. It was ugly. It tore through the fog like a knife.
+
+Silas kicked again. And again. Each time, the sound grew louder. Each time, the fog retreated, dissolving into thin wisps.
+
+Down in the village, the Mayor woke up with a start. The children sat up in their beds. The cattle lowed.
+
+The sun broke through the clouds, pale and watery, but real.
+
+They found Silas in the tower, his leg broken, his body bruised and cold. He was not dead, but he would never walk again. The Bell was still humming, a faint, resonant vibration that seemed to come from the earth itself below the tower.
+
+The Mayor stood over him, pale and shaken. "I did not know," he whispered. "I thought... I thought it was just noise."
+
+Silas opened his eyes. He looked at the Mayor, then at the Bell.
+
+"The noise," Silas whispered, his voice like dry leaves, "is the only thing that keeps the Silence out."
+
+They say the Mayor himself rings the Bell now, though he does it clumsily. And they say that on quiet nights, if you listen closely to the ground in the valley, you can hear a response—a deep, slow heartbeat in the stone, keeping time with the iron morning.
+
+*Whatever wakes must first be called,*
+*By hand of bone and iron walled.*
+*For peace is not the absence of the fight,*
+*But the watchman singing in the night.*
+*—Inscription carved into the new base of the Bell.*
