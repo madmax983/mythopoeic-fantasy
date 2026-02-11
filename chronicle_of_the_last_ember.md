@@ -264,3 +264,73 @@ They say the Mayor himself rings the Bell now, though he does it clumsily. And t
 *For peace is not the absence of the fight,*
 *But the watchman singing in the night.*
 *—Inscription carved into the new base of the Bell.*
+
+---
+
+# The Keeper of the Bridge
+
+*A tale recovered from the oral traditions of the River Folk, dated to the Age of Expansion.*
+
+The Great Bridge of Othmar was a marvel of the old world. It spanned the Serpent’s Gorge, a chasm so deep that if you dropped a stone, you would not hear it hit the bottom. The bridge was built of grey stone, simple and unadorned, save for the intricate carvings of vines and roots that spiraled up its pillars.
+
+Kaelen was the bridge’s keeper. He was not an engineer, nor a mason. He was a sweeper. He was a small man with a bent back and eyes the color of river mud. Every day, from dawn until dusk, he swept the bridge. He swept the dust from the stones. He picked the moss from the crevices. He polished the railings with a rough cloth.
+
+"Why do you bother?" asked the merchants who hurried across with their carts of silk and spice. "It is just stone. It does not need to shine to hold our weight."
+
+"The stone breathes," Kaelen would reply softly, not looking up from his broom. "Dust chokes it. Moss cracks it. I am giving it breath."
+
+The merchants would laugh and toss him a copper coin, which Kaelen would use to buy oil for the lamps that lit the bridge at night.
+
+Years passed. The Kingdom of Othmar grew rich. The King, a man of ambition and new ideas, decided that the old bridge was too narrow, too plain for such a prosperous realm. He wanted a bridge of white marble, wide enough for ten chariots, adorned with statues of his victories.
+
+"Tear it down," the King commanded.
+
+The engineers came with their hammers and chisels. They set their explosives. They built scaffolds.
+
+Kaelen stood in their way. He did not have a sword. He had his broom.
+
+"You cannot," he said. His voice was not loud, but it carried over the roar of the river below.
+
+"Move aside, old man," the Chief Engineer said. "This is progress. The new bridge will last a thousand years."
+
+"This bridge," Kaelen said, "is not held up by stone. It is held up by memory. If you break the stone, you break the memory. And the gorge is hungry."
+
+The Engineer laughed. "Superstition. Stone is stone."
+
+He gave the order. The hammers fell.
+
+*Crack.*
+
+It was not the sound of stone breaking. It was the sound of a scream. A deep, earthen scream that rose from the bottom of the gorge. The ground shook. The scaffolds swayed.
+
+The workers froze.
+
+"Proceed!" the Engineer shouted, though his face was pale.
+
+They struck again.
+
+*CRACK.*
+
+The bridge shuddered. But it did not fall. Instead, the cliffs on either side began to crumble. The earth itself was rejecting the violence.
+
+Kaelen dropped his broom. He walked to the center of the bridge, where the first crack had appeared. He knelt. He placed his hands on the stone.
+
+"I am here," he whispered. "I remember."
+
+He closed his eyes. He thought of the thousands of feet that had crossed the bridge. The lovers who had met there. The soldiers who had marched home. The refugees who had fled to safety. He poured his memory into the stone, filling the cracks not with mortar, but with the stories he had swept up with the dust.
+
+The shaking stopped. The scream faded to a low hum.
+
+But Kaelen did not move. He could not. He had become the mortar.
+
+The Engineer watched in silence as the old man’s skin turned to grey, his clothes to texture, his hair to moss. Kaelen had become part of the bridge.
+
+The King, when he heard, was afraid. He ordered the work to stop. The new bridge was never built.
+
+They say the Great Bridge still stands, though it is narrower now, and the carvings of vines look strangely like the veins of a human hand. And they say that if you cross it in silence, you can hear the sweeping of a broom, keeping the path clear for those who come after.
+
+*Stone forgets what blood remembers,*
+*Flesh and bone are dying embers.*
+*But the story held in quiet trust,*
+*Builds a bridge from memory's dust.*
+*—Verse found etched into the railing of the Othmar Bridge.*
