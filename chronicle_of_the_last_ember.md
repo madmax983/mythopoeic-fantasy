@@ -334,3 +334,94 @@ They say the Great Bridge still stands, though it is narrower now, and the carvi
 *But the story held in quiet trust,*
 *Builds a bridge from memory's dust.*
 *—Verse found etched into the railing of the Othmar Bridge.*
+
+---
+
+# The Weaver of the Golden Hem
+
+*A parable found stitched into the lining of a beggar’s coat, originating from the Siege of Omber.*
+
+The City of Omber was not destroyed by fire, nor by flood, but by the Grey Siege. The Enemy did not storm the walls; they simply surrounded them and waited. They brought with them a fog that swallowed the sun, a silence that ate the songs, and a cold that seeped into the marrow of the stone.
+
+For three years, the sun did not rise. The days were indistinguishable from the nights, marked only by the tolling of the Iron Bell, which grew fainter with each passing month.
+
+In the Quarter of the Looms, Hannis the Weaver sat at his bench. He was an old man, blind from birth, his eyes the color of milk. He did not need to see the thread to know its quality; his fingers could read the wool like a scribe reads a scroll.
+
+One morning, or perhaps it was evening, the Prefect of the City came to the loom. The Prefect was a man of logic, a scholar who had risen to power because he was the only one who could count the dwindling grain without weeping.
+
+"Hannis," the Prefect said, his voice flat and reasonable. "Stop this foolishness."
+
+Hannis did not stop. His shuttle flew back and forth, a rhythmic *clack-hiss* in the silence. "I am weaving, Prefect."
+
+"You are weaving patterns," the Prefect said, touching the cloth. "Complex knots. Flowers that no longer grow. Stars that no longer shine. This is a waste of time and thread. We need blankets. Plain, thick, grey blankets. The people are freezing."
+
+"The people are freezing because they have forgotten the sun," Hannis said softly.
+
+The Prefect sighed. "The sun is a memory, Hannis. It is a story we tell children to make them sleep. It does not warm the flesh. Your patterns add no warmth, but they cost time. We have no time."
+
+"Beauty is not a luxury," Hannis replied, his hands never pausing. "It is a form of defiance."
+
+"It is inefficient," the Prefect snapped. "I am confiscating your colored thread. You will weave grey wool, in a simple weave, three yards a day. It is for the good of the city. We must be practical if we are to survive."
+
+The soldiers took the dyed wool—the reds of the poppy, the blues of the river, the yellows of the corn. They left only the grey, the color of the fog, the color of the stone, the color of despair.
+
+Hannis sat in the silence. He touched the grey wool. It was coarse and cold.
+
+"Very well," he whispered.
+
+He began to weave the grey blankets. Day after day, the plain cloth rolled from his loom. The Prefect was pleased. The quotas were met. The people were covered.
+
+But Hannis had a secret.
+
+Hidden in the straw of his mattress, he had saved a single spool of thread. It was not gold, for gold was too cold. It was ordinary wool, but he had spun it himself, years ago, on a day when the sun had been warm on his face. And as he had spun it, he had sung to it. He had sung the names of the light.
+
+*Dawn-fire, Noon-gold, Evening-ember.*
+*Light that the blind eye remembers.*
+*Not in the sky, but in the thread,*
+*Wakes the living, warms the dead.*
+
+Every night, when the city slept under the crushing fog, Hannis would unpick the hem of the day's blanket. And with trembling fingers, he would weave a single line of the sun-thread into the lining. It was invisible from the outside, hidden against the skin of the wearer.
+
+He wove not just a thread, but a story. In the language of knots, he wrote the word for *Morning*. He wrote the word for *Hope*. He wrote the true name of the sun, which the fog had tried to erase.
+
+The work was slow, and it cost him. The sun-thread required not just skill, but vitality. With every stitch, Hannis felt older, colder, as if he were pouring his own life into the wool.
+
+"Why do you look so pale?" the Prefect asked one day, watching the old man shiver at his loom.
+
+"The cold is patient," Hannis said. "But so am I."
+
+The siege dragged on. The grain ran out. The wood ran out. The people huddled in their grey blankets, waiting for the end.
+
+But a strange thing happened.
+
+Those who wrapped themselves in Hannis’s blankets did not freeze. They slept, and in their sleep, they dreamed of green fields. They woke with a strange warmth in their chests, a memory of light that the fog could not touch. They did not despair. They shared their last crusts. They sang quiet songs in the dark.
+
+The Prefect could not understand it. "They should be rioting," he muttered. "They should be dying of despair. Why are they calm?"
+
+He went to Hannis’s workshop. The loom was silent.
+
+Hannis sat in his chair, his hands resting on the final blanket. He was cold, stone cold. His face was pale, but he was smiling.
+
+The Prefect picked up the blanket. It looked like all the others—grey, coarse, practical. But as he held it, he felt a faint, rhythmic thrumming against his palms. He turned it over.
+
+There, in the hem, hidden from the eye but plain to the touch, was a line of golden stitching. It was not just a thread; it was a vein of light.
+
+The Prefect traced the pattern. He was a scholar; he knew the old tongues. He read the knots.
+
+*The dark is only a shadow. The light is the stone.*
+
+The Prefect stood in the silence of the dead weaver’s room. He looked at the grey fog pressing against the window. He looked at the grey city. And for the first time in years, he wept.
+
+He took the blanket and wrapped it around his own shoulders. He went out into the square. He did not order the soldiers to attack. He did not order the people to disperse.
+
+He ordered the bell to be rung.
+
+They say the siege broke not because of an army, but because the people of Omber refused to die. They wore their grey cloaks like armor, and the hidden sun in the hems kept their hearts burning until the fog, finding no fear to feed on, simply dissolved.
+
+Hannis was buried in the Potter’s Field, wrapped in a blanket of pure grey, for he had given all his gold away. But they say that on the spot where he lies, even in the depths of winter, the snow melts first, and the first crocus of spring always blooms there, a small, stubborn splash of gold against the grey.
+
+*Weave the silence, weave the dread,*
+*But hide the morning in the thread.*
+*For tyrants break the walls of stone,*
+*But cannot break what is not shown.*
+*—The Weaver’s Rhyme, still taught to children in Omber.*
