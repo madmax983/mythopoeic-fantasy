@@ -425,3 +425,97 @@ Hannis was buried in the Potter’s Field, wrapped in a blanket of pure grey, fo
 *For tyrants break the walls of stone,*
 *But cannot break what is not shown.*
 *—The Weaver’s Rhyme, still taught to children in Omber.*
+
+---
+
+# The Steward of the Empty Chair
+
+*A legend from the ruins of Aethelgard, preserved by the Daughters of the Hearth.*
+
+The Great Hall of Aethelgard was a skeleton of stone. Its roof had long since fallen, leaving only the ribs of the vault open to the sky. The tapestries had rotted, and the floor was a mosaic of weeds and shattered tile. But the High Table, carved from the blackwood of the deep forest, remained.
+
+Brenna was not a queen, nor a lady of the court. She was the granddaughter of a scullery maid. She was old, her hands spotted like the leaves of autumn, her back bent from a lifetime of carrying water. But every evening, as the sun dipped below the broken walls, Brenna would come to the High Table.
+
+She brought no feast. There was no food in Aethelgard, save for the roots and berries gathered from the wild gardens. But she brought a cloth, white as bone, which she washed every morning in the stream. She brought a single silver cup, the last treasure of the house, which she polished with sand until it gleamed like a mirror. She brought a candle, made from the tallow of deer.
+
+She laid the cloth. She set the cup. She lit the candle.
+
+And she stood behind the great empty chair at the head of the table, head bowed, hands folded.
+
+"For the King," she whispered.
+
+"The King is dust," said the new Governor. He was a man of the New Order, practical and sharp. He wore a coat of sensible wool and carried a ledger. "Why do you waste the candle? Tallow is scarce."
+
+"The King returns," Brenna said, not looking up.
+
+"The line is broken," the Governor said, his voice reasonable. "The last king died three hundred years ago. There is no heir. There is only us, and we are hungry. This hall could store grain. The rats would not eat it here, for the stone is cold."
+
+"The hall is for the King," Brenna said.
+
+"You are a foolish old woman," the Governor said, not unkindly. "You serve a ghost. You polish a cup for lips that will never drink. You light a way for feet that will never walk."
+
+"I serve the chair," Brenna said. "For if the chair is not ready, where will he sit?"
+
+"He is not coming," the Governor insisted. "Look around you. The walls are down. The world has moved on. We do not need kings. We need bread."
+
+"Man does not live by bread alone," Brenna murmured.
+
+The Governor shook his head and walked away. But he did not stop her. He was a practical man, but he was not cruel, and the sight of the small, bent woman in the vast, ruined hall unsettled him.
+
+Winter came. The snow fell through the open roof, covering the floor in a white shroud. The wind howled through the arches. The people of the village huddled in their huts, shivering.
+
+But every night, a single light burned in the ruin. Every night, the table was set.
+
+One night, a storm raged. The wind was so fierce it threatened to topple the remaining pillars. The Governor, unable to sleep, went to the hall to check the structural integrity of the walls.
+
+He found Brenna standing at her post. She was blue with cold. Her hands trembled so violently she could barely strike the flint to light the candle. The wind blew it out. She struck it again. It blew out.
+
+"Stop," the Governor shouted over the wind. "You will die here. Go home."
+
+Brenna did not answer. She shielded the wick with her body. She struck the flint. The flame caught. It wavered, small and fragile against the storm.
+
+"Why?" the Governor demanded, grabbing her shoulder. "Why do you do this? It is madness. No one sees. No one cares."
+
+Brenna looked at him. Her eyes were clear, despite the cold.
+
+"I do not do it for the King," she said softly. "I do it for the emptiness."
+
+"The emptiness?"
+
+"If I stop," she said, "then the chair is just a chair. The hall is just a ruin. The world is just a place where we eat and sleep and die. But as long as the table is set, the emptiness is not an absence. It is a waiting. It is a promise."
+
+The Governor looked at the empty chair. He looked at the single, struggling flame. He looked at the vast darkness of the night above them.
+
+He felt a strange ache in his chest, a hunger that bread could not fill.
+
+He released her shoulder. He took off his heavy wool coat and placed it around her.
+
+"The wind is from the north," he said gruffly. "Stand on this side. It will shield the flame."
+
+And he stood beside her, blocking the wind with his own body, while she tended the light.
+
+Brenna died before the spring came. They found her in her bed, her hands folded as if in service.
+
+The Governor ordered her buried in the royal crypts, a decision that scandalized the elders. "She was a servant," they said. "She was the Steward," he replied.
+
+The next evening, the hall was dark. The people looked at the ruin and felt a sudden, sharp loss. The light was gone. The waiting was over. The world felt smaller, colder, more practical.
+
+Then, a light appeared.
+
+The Governor walked into the hall. He carried the white cloth. He carried the silver cup. He carried a fresh candle.
+
+He was clumsy. He did not know the proper way to fold the linen. But he laid it. He set the cup. He lit the candle.
+
+He stood behind the empty chair.
+
+"For the King," he whispered.
+
+They say the Governor never missed a night, until his own death. And after him, his son. And after him, a daughter. The Hall was never repaired, for its ruin was part of its truth. But the table was never empty.
+
+And they say that on the darkest nights, when the wind howls and the world seems ready to break, travelers who pass the ruin see the light and feel a strange comfort. They do not see a ghost. They see a promise, kept not by power, but by a stubborn, unreasonable love.
+
+*The crown may rust, the throne may fall,*
+*But faith builds pillars in the hall.*
+*Not for the lord who rules the land,*
+*But for the cup in waiting hand.*
+*—Inscription on the base of the silver cup.*
