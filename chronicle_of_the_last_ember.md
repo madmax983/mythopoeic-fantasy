@@ -425,3 +425,91 @@ Hannis was buried in the Potter’s Field, wrapped in a blanket of pure grey, fo
 *For tyrants break the walls of stone,*
 *But cannot break what is not shown.*
 *—The Weaver’s Rhyme, still taught to children in Omber.*
+
+
+---
+
+
+# The Parable of the Bitter Root
+
+*Attributed to the oral history of the Cliff-Dwellers of Orah, dated to the Years of the New Prosperity.*
+
+The City of Orah was built on the edge of the world. Its towers rose white and gleaming from the sheer face of the Great Cliff, overlooking a sea of clouds that never broke. It was a place of high winds and higher thoughts, where philosophers debated the nature of the stars and architects dreamed of bridges to the moon.
+
+But at the base of the city, where the white stone met the grey earth of the cliff-edge, there was a garden. It was not a garden of delight. No fountains played there. No sweet-scented blossoms perfumed the air. It was a tangle of gnarled, grey roots and thorny vines that clung to the rock like desperate fingers. The plants were ugly, with leaves like old parchment and stems like iron wire. They bore no fruit, only small, hard seeds that tasted of ash.
+
+They were called the Bitter Roots.
+
+Mara was the gardener. She was as old and weathered as the roots she tended. Her hands were scarred from the thorns, and her back was bent from years of kneeling on the hard stone. Every day, she watered the grey tangle with water carried up from the cisterns. Every day, she pruned the dead wood and guided the living vines into the deepest cracks of the cliff.
+
+"Why do you labor so?" asked the High Councilor, a young man with a vision of a Golden Age. He wore robes of silk and smelled of rosewater. "These plants are an eyesore. They mar the beauty of our white towers. We should uproot them and plant Sun-Lilies. Their petals are like gold, and they sing when the wind blows."
+
+"The Sun-Lilies have shallow roots," Mara said, her voice like grinding stones. "They drink the rain and give nothing back."
+
+"But they are beautiful," the Councilor insisted. "Beauty is the purpose of Orah. We are a beacon to the world. We cannot have this... ugliness at our foundation."
+
+"Beauty is the gloss," Mara muttered, quoting a rhyme the young man did not know. "Truth is the grain."
+
+"The Bitter Roots are the grain?" the Councilor laughed. "They are weeds, old woman. Stubborn, ugly weeds."
+
+"They are not weeds," Mara said. "They are anchors."
+
+The Councilor did not listen. He was a man of action, and he believed that the world could be improved by removing the unpleasant parts. He ordered the gardeners of the upper terraces to come down with their spades and their shears.
+
+"Clear this tangle," he commanded. "Make way for the lilies."
+
+Mara stood before them, her pruning shears in her hand. "You must not," she said.
+
+"Step aside, grandmother," a young gardener said gently. "It is for the best. The city will be more beautiful."
+
+They pushed her aside, not unkindly, for they were good people who loved beauty. They began to hack at the iron-hard stems. They dug at the gnarled roots.
+
+It was hard work. The roots fought back. Axes broke. Spades bent. But the gardeners were many, and they were driven by the vision of the Golden Age. By sunset, half the garden was gone. The grey tangle lay in a heap, ready for the fire. The cliff edge was bare, save for the holes where the roots had been.
+
+"Now," the Councilor said, smiling at the empty earth. "Tomorrow, we plant the lilies."
+
+That night, the wind rose.
+
+It was not a storm, just the usual wind that buffeted Orah. But this time, the city felt it differently. The white towers, usually so steady, began to tremble. A low groan echoed through the streets, coming not from the sky, but from the ground.
+
+In the morning, a crack appeared in the main plaza. It ran from the fountain to the edge of the cliff, a jagged line of darkness in the white stone.
+
+The architects rushed to examine it. "The foundation is shifting," they cried. "The stone is losing its grip."
+
+Mara was already at the cliff edge. She was on her knees, her hands deep in the disturbed earth. She was weeping, not with sorrow, but with desperation.
+
+"The roots," she whispered. "The roots held the stone."
+
+The Bitter Roots did not just cling to the surface. They dove deep, threading through the faults and fissures of the cliff, binding the shattering rock together with a strength that steel could not match. They were the stitches in the wound of the world. By removing them, the Councilor had cut the thread.
+
+"What have we done?" the Councilor asked, his face pale as the lilies he had dreamed of.
+
+"You have chosen the flower over the stone," Mara said. She did not look up. She was gathering the severed roots, the broken stems. "Help me."
+
+"It is too late," the architects said. "The crack is widening."
+
+"It is never too late to plant," Mara said.
+
+She took a broken root, its sap bleeding grey and sticky. She shoved it into a fissure. She took a seed, hard as a pebble. She pressed it into the dust. She watered them with her own flask.
+
+"Sing," she commanded the Councilor. "Sing to them. They need to know they are wanted."
+
+"I... I do not know their song," the Councilor stammered.
+
+"Then weep," Mara said. "Salt is good for the roots."
+
+The Councilor knelt beside her. He saw the crack widening. He saw the white towers swaying. And he wept. He wept for his pride, for his blindness, for the beauty that had almost destroyed them.
+
+They worked all day and all night. They replanted the ugly, grey tangle. They watered it with tears and cistern water. And slowly, agonizingly, the roots took hold. They drank the offering. They reached out their thorny fingers and gripped the sliding stone.
+
+The trembling stopped. The groan faded. The crack in the plaza remained, a scar in the white perfection, but it did not widen.
+
+The Sun-Lilies were never planted. The garden of the Bitter Roots remains. It is still ugly. It is still grey. But now, when the people of Orah walk past, they do not look away. They bow.
+
+For they know that the city stands not on its white towers, but on the grip of the grey, gnarled things that hold the earth together in the dark.
+
+*Bind the earth with iron thread,*
+*Feed the roots with tears we shed.*
+*For if the ugly things should die,*
+*The beautiful will fall from high.*
+*—Inscription on the base of Mara’s statue, which stands in the garden, facing the cliff.*
