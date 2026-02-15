@@ -606,3 +606,113 @@ And they say that on the darkest nights, when the wind howls and the world seems
 *Not for the lord who rules the land,*
 *But for the cup in waiting hand.*
 *—Inscription on the base of the silver cup.*
+
+---
+
+# The Covenant of the Salt
+
+*Attributed to the Watchers of the Western Edge, recorded during the time of the Green Silence.*
+
+The village of Edgewood did not fear the dark. They feared the bright.
+
+To the west lay the Great Green, a forest so vibrant that its leaves seemed to glow with an inner light. The flowers there were the size of cartwheels, dripping with nectar that smelled of honey and summer rain. The trees did not creak; they hummed. It was a place of abundance, of life so intense it made the rest of the world look grey and dead.
+
+Haddon was the Sower. He was a man made of angles and dry skin, as if he had been cured in smoke. Every morning, while the village was still sleeping, he walked the perimeter of the fields. He carried a heavy sack of grey, coarse salt.
+
+He did not sow seeds. He sowed death.
+
+He walked the line where the grey earth of the village met the riotous green of the forest. He took handfuls of salt and cast them onto the ground, muttering the Old Words. Where the salt fell, the grass withered. The creeping vines that had tried to cross the line during the night recoiled, hissing like snakes. The ground remained bare, a scar of sterility protecting the village.
+
+The people of Edgewood hated him.
+
+"Why?" asked Sariel, a young man with eyes full of dreams. "Why do you kill the earth? The Green wants to bless us. Look at the fruit hanging from the boughs! It is large as a man's head. It could feed us all winter."
+
+"It is not fruit," Haddon said, his voice rasping like sand on stone. "It is bait."
+
+"You are an old fool," Sariel spat. "You are jealous of the life. You want us to starve in this grey dust because you have forgotten how to taste."
+
+"I sow the salt," Haddon said, "so that you may remain men. The Green does not want to feed you. It wants to become you."
+
+The winter was hard that year. The village stores ran low. Children cried in the night. The smell of the honey-fruit from the Great Green drifted on the wind, maddening in its sweetness.
+
+Sariel gathered the men. "Enough," he said. "The old man is killing us with his superstition. We will break the line. We will let the blessing in."
+
+They went to the edge of the village. Haddon stood there, his sack half-empty. He looked small against the wall of the forest.
+
+"Do not," he said. It was not a command, but a plea.
+
+Sariel pushed him aside. He took the sack of salt and cut it open. The grey grains spilled into the mud, useless.
+
+"Enter!" Sariel shouted to the forest. "We welcome you!"
+
+For a moment, nothing happened. Then, the forest exhaled.
+
+It was not a wind. It was a rush of growth. Vines shot forward like striking vipers, but soft, velvety. Flowers bloomed in seconds, covering the bare earth in a carpet of impossible colors. The air filled with golden pollen.
+
+The villagers laughed. They ran into the new growth. They ate the fruit. It was sweeter than anything they had ever known. It took away the hunger. It took away the cold.
+
+"See?" Sariel said, biting into a plum that bled purple juice. "He lied. It is paradise."
+
+Haddon did not eat. He retreated to his hut on the hill, watching.
+
+For three days, Edgewood was a garden of delights. No one worked. No one argued. They lay in the soft grass, listening to the humming of the trees.
+
+On the fourth day, Sariel went to find his sister, Elara. She had been the first to run into the Green.
+
+He found her by the well. She was standing very still. Her feet were buried in the earth. Her skin had taken on a greenish hue, and her hair was weaving itself into leaves.
+
+"Elara?" Sariel asked.
+
+She turned to him. Her eyes were gone, replaced by the soft, blank texture of a petal. She smiled, a terrible, serene smile.
+
+"I am happy," she said. Her voice was not a voice. It was the rustle of wind in branches. "I am... we."
+
+Sariel looked around. He saw his neighbors. They were not moving. They were rooting. The vines were not embracing them; they were digesting them. The "blessing" was not a gift; it was a harvest. The forest did not tolerate individuality. It only knew the Colony.
+
+The horror of it struck Sariel—not the pain, for there was no pain, but the peace. The perfect, mindless peace of a thing that has no name, no memory, no choice.
+
+He ran to the hill. He hammered on Haddon's door.
+
+"Help us!" he screamed. "They are... they are becoming the grass!"
+
+Haddon opened the door. He looked tired. He held a small, hidden pouch of salt.
+
+"I cannot save them," Haddon said. "They have eaten the fruit. They are part of the Green now."
+
+"We must save the children," Sariel wept. "The ones who have not rooted yet."
+
+Haddon nodded. "Take the hoe. I will take the salt. We must make a new line."
+
+They went down into the horror. The air was thick with pollen that tried to clog their throats. Vines grasped at their ankles, whispering promises of sleep.
+
+Sariel swung the hoe. He did not hack at weeds; he hacked at things that had once been his friends' gardens. He cut through the beautiful, singing flowers. It felt like murder. The plants screamed—a high, thin sound like a breaking flute.
+
+Haddon followed, sowing the salt. He did not scatter it; he ground it into the earth.
+
+"This is the price!" Haddon shouted over the screams of the flowers. "This is the cost of a name! To be separate! To be alone! To be hungry!"
+
+They carved a circle around the few houses that remained. They fought the paradise until their hands bled and their lungs burned.
+
+When dawn came, the Green had receded to the new line. Inside the circle, the ground was dead, grey, and salted.
+
+Outside, the forest hummed. Among the trees, Sariel saw shapes that looked like men and women, standing very still, their arms raised to the sun, their faces peaceful and blank.
+
+Edgewood was saved, but it was half the size. The people who remained were gaunt, their eyes haunted. They looked at the grey, barren strip that surrounded them. It was ugly. It was dead.
+
+Sariel stood by the line. He looked at the lush, singing forest. He looked at his sister, who was now a beautiful, flowering bush just beyond the salt.
+
+He felt the hunger in his belly. It was a sharp, gnawing pain.
+
+"It hurts," he whispered.
+
+Haddon handed him the empty sack.
+
+"Yes," the old man said. "Pain is how you know you are not a leaf."
+
+Haddon died that winter. Sariel took the sack. He is old now, and the people hate him, for he forbids them the fruit and kills the flowers. But every morning, he walks the line. He sows the salt. He keeps the world grey, and hungry, and free.
+
+*Green is the greed that wears a face of grace,*
+*Salt is the sorrow that saves the place.*
+*Better the hunger that wakes the soul,*
+*Than the sweet, soft sleep that swallows it whole.*
+*—Chant of the Border Watch.*
