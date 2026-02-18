@@ -832,3 +832,108 @@ They say the stone still sits in the square of Oryn. It is too heavy to move. An
 *For a lie flies on wings of the air,*
 *But the truth is a burden we bear.*
 *—Inscription on the base of the Stone of Oryn.*
+---
+
+# The Parable of the Unbroken Skin
+
+*A cautionary tale found in the scorched remains of the Library of Solace, dating to the Age of Glass.*
+
+The City of Solace was not built of stone, but of crystal. It grew from the earth in great, hexagonal spires that caught the light of the sun and shattered it into a thousand rainbows. To walk its streets was to walk inside a jewel.
+
+But the true marvel of Solace was not its architecture, but its silence. No one in Solace screamed. No one wept.
+
+Liora was a Healer of the Third Order. She was young, brilliant, and possessed of a compassion so deep it was almost a wound itself. She could not bear to see suffering. The sight of a child with a scraped knee, or an old man with aching joints, would bring tears to her eyes.
+
+"Why must we hurt?" she asked the High Priest, old Malachi. "We have the power to mend. Why is the mending so slow? Why must the bone ache before it knits?"
+
+"Pain is the teacher," Malachi said, his voice like dry parchment. "It tells us where the edge is. It tells us what is broken. Without the ache, we would not know the healing."
+
+Liora did not accept this. She believed that pain was a flaw, a mistake in the design of the world that it was her duty to correct.
+
+She spent her nights in the deep archives, studying the forbidden geometries of the soul. And there, she found the answer. She discovered that pain was not a static thing, but a fluid. It could be moved. It could be drawn out, like venom from a wound, and stored elsewhere.
+
+She went to the Deep Cave beneath the city, where the roots of the crystal spires plunged into the dark earth. She chose a massive, dark geode as her vessel.
+
+The next day, a mason fell from a scaffold. His leg was shattered. He screamed, his face white with agony.
+
+Liora knelt beside him. She did not set the bone. She did not bind the limb. She simply placed her hands on his skin and whispered the words she had found.
+
+The mason stopped screaming. His face relaxed. He looked at his leg, which was still twisted at a sickening angle.
+
+"It... it does not hurt," he whispered.
+
+"Stand," Liora said gently.
+
+He stood. The bone snapped back into place with a wet crunch, but he did not flinch. The flesh knit together in seconds. He walked away, laughing, leaving Liora to wipe a single drop of black sweat from her brow.
+
+News of the miracle spread. Soon, the Temple of Mercy was empty, and Liora's clinic was full. She healed the sick, the lame, the dying. She drew their pain out and cast it down into the dark geode in the Deep Cave.
+
+For a year, Solace was a paradise. No one suffered. A mother could birth a child without a pang. A soldier could take a sword to the gut and smile. The city glowed with health and happiness.
+
+But slowly, the silence of the city changed. It was not the silence of peace, but the silence of indifference.
+
+Liora walked the market one day and saw a child trip and fall hard on the crystal pavement. His knee was bloody. He did not cry. He stood up, looked at the blood with dull eyes, and walked on. His mother, standing nearby, did not rush to comfort him. She merely nodded.
+
+"He is not hurt," the mother said when she saw Liora's expression. "Why should I coddle him?"
+
+Liora felt a chill that had nothing to do with the wind.
+
+The craftsmen began to take risks. Why be careful with the chisel if a slip of the hand cost nothing? The art became sloppy, the crystal spires jagged and sharp.
+
+The lovers stopped holding hands. Why seek comfort if there is no distress? Why offer a shoulder if there is no burden? The warmth went out of the city, replaced by a cold, efficient pleasantness.
+
+And deep below, the earth began to groan.
+
+Liora woke one night to a sound that was not a sound, but a vibration in her teeth. It was a low, discordant thrumming, like a bow drawn across a frayed string.
+
+She ran to the Deep Cave.
+
+The geode was glowing. It pulsed with a sick, violet light. The rock around it was cracking, unable to contain the pressure of a city's worth of deferred agony.
+
+Liora saw the truth then. She had not destroyed the pain; she had only hoarded it. And like water behind a dam, it was rising.
+
+"It will break," she whispered. "And it will drown us."
+
+She knew what she had to do. She also knew that the city would hate her for it. They had forgotten how to be brave. They had forgotten how to endure.
+
+She picked up a heavy iron pickaxe left by the miners.
+
+"Forgive me," she said to the darkness. "I am giving you back your burden."
+
+She swung the pick.
+
+*CRACK.*
+
+The geode shattered.
+
+The force of it threw Liora back against the wall. A wave of violet energy exploded outward, rushing up through the roots of the spires, up into the city above.
+
+It was not a physical blast. It was a psychic scream.
+
+In the city, thousands of people fell to their knees. The mason felt his leg shatter again in memory. The mother felt the pangs of birth. The soldier felt the sword in his gut. Every suppressed ache, every stolen grief, every skipped moment of suffering crashed down upon them in a single instant.
+
+The city of Solace screamed. It was a raw, ugly, beautiful sound. It was the sound of life rushing back into a vacuum.
+
+Liora crawled out of the cave, her body bruised, her spirit exhausted. She expected to be torn apart by the mob.
+
+She found the people weeping in the streets. But they were not alone.
+
+She saw the mother holding her child, rocking him, her tears mixing with the blood on his knee. She saw the mason's wife holding his hand as he gritted his teeth against the pain. She saw lovers clinging to each other, terrified and tender.
+
+Malachi found her. He was weeping too, his old joints burning with the return of his arthritis.
+
+"You have done a terrible thing," he said, leaning on his staff.
+
+"I know," Liora whispered.
+
+"It hurts," he said. He looked at his hand, gnarled and painful. Then he looked at her, and his eyes were bright. "Thank you."
+
+Liora was exiled, of course. The memory of the Great Pain was too fresh, and the people could not bear to look at her without flinching. She left the City of Solace and walked into the wild lands.
+
+But they say that in Solace, the art is beautiful again, for it is made with care. And they say that the people there are the kindest in the world, for they know the weight of what they carry, and they do not wish anyone to carry it alone.
+
+*Pain is the anchor, love is the rope,*
+*Fear is the shadow that defines the hope.*
+*To banish the night is to blind the eye,*
+*For stars only burn in the darkest sky.*
+*—Verse found scratched into the wall of the Deep Cave.*
