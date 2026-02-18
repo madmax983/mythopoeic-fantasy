@@ -716,3 +716,115 @@ Haddon died that winter. Sariel took the sack. He is old now, and the people hat
 *Better the hunger that wakes the soul,*
 *Than the sweet, soft sleep that swallows it whole.*
 *—Chant of the Border Watch.*
+
+---
+
+# The Courier of the Heavy Word
+
+*A fragment found in the satchel of a dead runner on the High Pass, preserved in the Messengers Guild Archives.*
+
+The City of Oryn was not besieged by armies of men, but by the Whisperers. They were shadows that stood tall as towers, and where they walked, courage drained away like water from a cracked cup. The walls of Oryn were strong, but walls cannot keep out fear.
+
+In the High Keep, the Grand Master of the Order called for Elian. Elian was a runner. He was not the fastest, for his legs were short, and he was not the strongest, for he was slight of build. But he was stubborn. If he was told to run, he ran until he fell, and then he crawled.
+
+"Take this," the Grand Master said, handing him a small iron box. It was no larger than a man's fist, but when Elian took it, his arm sagged. It was impossibly heavy, as if it contained a piece of a collapsed star.
+
+"What is in it?" Elian gasped, shifting his stance to support the weight.
+
+"The Word," the Master said. "Carry it to the Commander at the Eastern Gate. Do not open it. Do not lighten it. The weight is the message."
+
+Elian nodded. He strapped the box to his back. The straps dug into his shoulders. He felt as if he were carrying a mountain.
+
+He set out. The run to the Eastern Gate was usually a matter of minutes for a swift courier. But with the box, every step was a battle. His boots ground into the pavement. His breath came in ragged gasps.
+
+Other runners passed him. They carried arrows, water, and bandages. They were swift and light.
+
+"Why do you crawl, Elian?" they called out. "The city is burning! Hurry!"
+
+"I am hurrying," Elian gritted out, though he was moving at the pace of an old man.
+
+He reached the Market Square. It was in chaos. People were screaming, fleeing from the shadows that lengthened across the cobblestones.
+
+A stranger stepped into Elian's path. He was tall and wore a cloak of shimmering grey silk. His face was kind, his voice soothing.
+
+"Poor boy," the stranger said. "You are crushing yourself. That box is made of old, foolish iron. Let me help you."
+
+"I must carry it," Elian wheezed.
+
+"But the message is inside," the stranger reasoned. "The box is just the container. Let us open it. I have a pouch of spider-silk. It weighs nothing. We can put the message in there, and you will fly like the wind. You can save them all, if you are fast enough."
+
+Elian hesitated. He looked at the smoke rising from the Eastern Gate. He thought of the people trapped there. He wanted to fly. He wanted to be the hero who arrived in time.
+
+"It is... heavy," Elian admitted.
+
+"Of course it is," the stranger smiled. "It is a burden you were not meant to bear. Give it to me."
+
+The stranger reached out. His hand was cool and inviting.
+
+Elian remembered the Grand Master’s eyes. *The weight is the message.*
+
+"No," Elian said.
+
+He stepped around the stranger. The movement cost him dearly; his knees buckled. But he caught himself.
+
+"You are a fool," the stranger said, and his voice was no longer kind. "You will be too late."
+
+"Then I will be late," Elian whispered.
+
+He plodded on. The smoke grew thicker. The screams grew louder. He could see the Eastern Gate. The Whisperers were there, towering over the defenders. The soldiers were dropping their swords, their faces white with terror. They were surrendering to the despair.
+
+Elian tried to run. He forced his legs to pump, but the weight held him to the earth. He was a stone trying to be a bird.
+
+He reached the steps of the gatehouse. He crawled up them, one by one. His lungs burned. His vision blurred.
+
+He reached the top. The Commander was there, on his knees, his sword broken. A Whisperer loomed over him, a vortex of silence and cold.
+
+"I am... here," Elian gasped.
+
+He collapsed. The iron box slammed into the stone floor.
+
+*THUD.*
+
+It was not a loud sound, but it was a heavy one. It was the sound of something real hitting a world of shadows.
+
+The Commander looked up. He saw the boy. He saw the box.
+
+"You are late," the Commander whispered. "All is lost."
+
+"Open it," Elian choked out.
+
+The Commander reached for the box. His hands shook. He undid the clasp. He threw back the lid.
+
+There was no parchment inside. There was no scroll. There was no gold.
+
+Inside the box lay a single, rough stone. It was grey, unpolished, and ugly. But it was there. It was solid. It occupied space with an absolute, undeniable certainty.
+
+The Commander lifted the stone. It was heavy in his hand.
+
+He held it up.
+
+The Whisperer looked at the stone. The shadow recoiled.
+
+The stone did not shine. It did not shoot fire. It simply *was*. In the face of the Whisperers, whose power lay in doubt and emptiness, the stone was an insult. It was a piece of unyielding truth.
+
+The Whisperer shrieked—a sound like tearing wind—and dissolved. It could not exist in the same space as the Heavy Word.
+
+The other shadows turned. They saw the stone. They felt its weight anchoring the reality they tried to dissolve. One by one, they flickered and vanished.
+
+The fear lifted. The soldiers picked up their swords. The walls ceased to tremble.
+
+Elian lay on the stones, his body broken by the effort. The Commander knelt beside him, still holding the rock.
+
+"I could not run," Elian whispered. "I am sorry."
+
+"If you had run," the Commander said softly, "you would have brought a message, and we would have died reading it. You brought the mountain."
+
+Elian smiled. He closed his eyes. The weight was gone.
+
+They say the stone is still there, set into the keystone of the Eastern Gate. It is not beautiful. It is not ornate. But they say that if you place your hand upon it, you feel a weight that steadies the heart, a reminder that some things are too heavy to fly, and that is why they remain.
+
+*Light is the lie that flies on the wind,*
+*Heavy the truth where the walls begin.*
+*Speed is for arrows, and flight for the bird,*
+*But the earth is held by the Heavy Word.*
+*—Verse etched into the iron box, now kept in the Guildhall.*
