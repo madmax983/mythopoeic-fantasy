@@ -937,3 +937,95 @@ But they say that in Solace, the art is beautiful again, for it is made with car
 *To banish the night is to blind the eye,*
 *For stars only burn in the darkest sky.*
 *—Verse found scratched into the wall of the Deep Cave.*
+
+---
+
+# The Cantor of the Leaden Voice
+
+*A fragment recovered from the scorched pews of the Cathedral of St. Pieron, dating to the time of the High Harmony.*
+
+The Cathedral of St. Pieron was not built with mortar. Its great dome, a vast expanse of Singing Glass, was held aloft by sound. Day and night, the Choir of the Ascendant maintained the Great Chord, a complex, shifting harmony that vibrated at the precise frequency of the glass. If the song faltered, the dome would not fall; it would shatter, and the thin air of the upper peaks would rush in to suffocate the city below.
+
+Brann was the Bass. He was not a man of grace. He was wide as a barrel, with a face like a cliff side and hands that looked as if they had been carved from oak roots. His voice was not beautiful. It was a deep, gravelly rumble, a sound like a millstone grinding against the earth.
+
+His role was simple: he sang the Anchor. While the sopranos soared like larks and the tenors wove intricate filigrees of light, Brann held the bottom. He sang the low, heavy notes that did not fly, but sat. They were the notes of mud, of rock, of heavy timber. They were ugly notes, thick and unpolished.
+
+"You drag us down," complained Elias, the new Precentor. Elias was young, with a voice like spun silver and a soul that yearned for the ether. "We are trying to touch the face of the Divine. Your voice is... dirt."
+
+"The dirt holds the roots," Brann rumbled, his voice shaking the dust from the rafters.
+
+"The dirt stains the shoes," Elias retorted. "We are the Ascendant. We should be pure. We should be light. We should be flawless."
+
+Elias had a vision. He wanted a chord so pure, so perfectly resonant, that it would not just hold the dome, but turn it into a lens, focusing the starlight into a beam of absolute clarity. He believed that if they could sing perfectly enough, they could sing away the shadows of the world.
+
+Slowly, Elias began to purge the choir. He removed the altos whose voices had the husk of age. He silenced the baritones who sang with the wobble of doubt. And finally, he came for Brann.
+
+"Step down, old man," Elias said. "I have found a replacement. A boy with a throat of velvet. He can sing the low notes, but he sings them like a cello, not a rock slide."
+
+Brann looked at the dome. He saw the glass shimmering, fragile and tense.
+
+"The glass needs the grit," Brann warned. "It is too smooth. If you polish the song too much, there is nothing for the weight to grip."
+
+"Go," Elias commanded.
+
+Brann left the choir loft. He did not leave the cathedral. He sat in the back pew, in the shadows, and listened.
+
+The new choir began the Vespers. It was magnificent. The sound was seamless, a river of pure liquid light. The boy who replaced Brann sang the low notes with a smooth, rich tone that blended perfectly with the tenors. There was no friction. There was no drag. The song rose, higher and purer than ever before.
+
+The people in the pews wept with joy. They felt light, as if gravity had lost its hold. The dome began to glow, the glass vibrating with a hum of pure ecstasy.
+
+Elias, conducting with tears in his eyes, pushed them higher. "Perfection!" he whispered. "Give me perfection!"
+
+And then, the sky answered.
+
+It was not a voice of God. It was the screech of the Wind-Between-Stars, the hungry void that presses against the fragile bubble of the world. It heard the perfect pitch of the dome, and it recognized a kinship. The void is perfect, for it is empty. It has no friction. It has no grit.
+
+The Wind began to sing *with* the choir.
+
+It matched their pitch exactly. The resonance built. The glass of the dome did not just vibrate; it began to scream. The light turned blindingly bright, then cold. The perfect harmony was no longer a shield; it was a doorway. The choir could not stop. They were locked in the feedback loop of their own perfection, their voices seized by the symmetry of the scream.
+
+Cracks appeared in the glass. Not the spiderwebs of stress, but the long, straight lines of absolute division.
+
+Elias stood frozen, his baton trembling. He tried to signal a change, a modulation, but the song was too strong. It was pulling them all into the sky.
+
+Brann stood up in the darkness.
+
+He walked down the aisle. He did not run. He walked with the heavy, plodding step of a man carrying a burden. He walked to the center of the nave, directly beneath the screaming dome.
+
+He opened his mouth.
+
+He did not sing a note. He did not try to harmonize.
+
+He roared.
+
+It was a sound of absolute, undeniable ugliness. It was a cough, a grunt, a jagged, tearing noise that had no place in music. It was the sound of a boot stuck in mud. It was the sound of a heavy door slamming. It was the sound of imperfection.
+
+*GRAAAK.*
+
+The sound hit the perfect harmony like a brick thrown into a mirror.
+
+The resonance faltered. The choir choked. The smooth, velvet boy squeaked.
+
+The Wind-Between-Stars, finding no purchase in the jagged, ugly sound, slipped. The connection broke.
+
+The dome shuddered. The screaming stopped. The glass groaned, settling back into its frame with a heavy, settling thud.
+
+Silence rushed back into the cathedral—a heavy, ringing silence.
+
+Elias fell to his knees, gasping for breath. The choir slumped in their stalls.
+
+Brann stood in the center, wiping his mouth with the back of his hand. He looked at the cracks in the dome. They were ugly. They marred the perfect view of the stars. But the dome held.
+
+"You broke the song," Elias whispered, his voice trembling with horror and relief.
+
+"I grounded it," Brann said.
+
+He turned and walked back to his pew.
+
+They say that Elias never sought perfection again. He rebuilt the choir, bringing back the old, the cracked, the weary. He learned that a true chord needs tension to hold its shape. And every evening, when the choir sings the Vespers, they leave a space in the harmony—a moment of silence where the only sound is the shuffling of feet or the clearing of a throat—just to remind the sky that they are still human, and therefore, they are heavy enough to stay.
+
+*The high note seeks the sun and breaks,*
+*The low note holds the earth and aches.*
+*Better the song that bears the scar,*
+*Than the glass that shatters like a star.*
+*—Inscription on the gravestone of Brann, the Last Anchor.*
