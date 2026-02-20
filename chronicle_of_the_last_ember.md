@@ -470,7 +470,7 @@ It was hard work. The roots fought back. Axes broke. Spades bent. But the garden
 
 That night, the wind rose.
 
-It was not a storm, just the usual wind that buffeted Orah. But this time, the city felt it differently. The white towers, usually so steady, began to tremble. A low groan echoed through the streets, coming not from the sky, but from the ground.
+It was not the storm, just the usual wind that buffeted Orah. But this time, the city felt it differently. The white towers, usually so steady, began to tremble. A low groan echoed through the streets, coming not from the sky, but from the ground.
 
 In the morning, a crack appeared in the main plaza. It ran from the fountain to the edge of the cliff, a jagged line of darkness in the white stone.
 
@@ -1029,3 +1029,96 @@ They say that Elias never sought perfection again. He rebuilt the choir, bringin
 *Better the song that bears the scar,*
 *Than the glass that shatters like a star.*
 *—Inscription on the gravestone of Brann, the Last Anchor.*
+
+---
+
+# The Chronicler of the Gilded Page
+
+*A cautionary fragment from the library of the White Tower, dated to the Years of the False Peace.*
+
+The City of Aethelgard was proud. Its walls were high, its banners bright, and its history was written in gold.
+
+Gaelen was the High Chronicler. He loved his city. He loved the way the sunlight hit the white stone of the battlements. He loved the stories of the heroes who had defended it.
+
+But when he opened the old, leather-bound tomes of the *Annals of the First War*, his heart grew heavy. The pages were filled with sorrow. They told of battles lost, of famines endured, of kings who wept in the night. They told of the time the Shadow came to the gates, and the people survived not by fighting, but by hiding in the cellars, holding their breath while the darkness passed over.
+
+"This is not a history for a great people," Gaelen whispered to the dust motes dancing in the sun. "Our children should not read of fear. They should read of courage. They should know that we are strong."
+
+And so, with the best of intentions, Gaelen began to rewrite the past.
+
+He took his sharpest quill and his brightest ink. Where the old text said *Retreat*, he wrote *Strategic Withdrawal*. Where it said *Wept*, he wrote *Stood Firm*. Where it said the king *Hid*, he wrote the king *Waited in Ambush*.
+
+Most importantly, he changed the account of the Shadow.
+
+The old books said: *The Shadow is not fought with swords. It is fought with silence. If you strike it, it grows. If you shout at it, it laughs. Only the still heart can withstand it.*
+
+Gaelen frowned. "Cowardice," he muttered. "A hero does not hide."
+
+He wrote: *The King drew his sword of light and the Shadow fled before his wrath. We drove it back with shouts of defiance.*
+
+It was a beautiful lie. It made the blood stir. It made the young men hold their heads high. It made the city feel invincible.
+
+Years passed. The old books were moved to the dampest cellar, forgotten. The new, gilded history was taught in the schools. The children grew up believing they were the descendants of dragon-slayers, not survivors.
+
+Then, the winter came early. The sun grew pale. A fog rolled in from the north, cold and silent.
+
+The Watchmen on the walls sounded the alarm. "The Shadow returns!"
+
+The young King, raised on Gaelen’s stories, did not order the people to the cellars. He did not order the fires doused and the breath held.
+
+"Open the gates!" he cried, his eyes shining with the borrowed glory of his ancestors. "We shall drive it back as our fathers did!"
+
+The knights rode out. Their armor gleamed. Their swords were sharp. They shouted their defiance to the fog.
+
+Gaelen, now an old man, watched from the library window. He expected to see the Shadow flee.
+
+Instead, he saw the fog swallow the knights. He saw the swords pass harmlessly through the mist. He heard the shouts turn to screams, and then to silence. The Shadow did not flee from their aggression; it fed on it. Every strike made it darker. Every shout made it stronger.
+
+The fog rolled over the walls. It seeped into the streets.
+
+Gaelen fell to his knees. The beautiful, golden book lay open on his desk. The lie stared up at him, bright and deadly.
+
+"I have killed them," he whispered. "I have killed them with glory."
+
+He ran to the door. He had to tell them. He had to tell the truth. But who would listen to an old man shouting against a lifetime of legends?
+
+In the street below, a washerwoman was scrubbing the steps of the temple. She was singing a song to herself, a low, mournful tune that had no place in the new history.
+
+*Close the eye and still the breath,*
+*Quiet acts can cheat the death.*
+*Sword and shield are water here,*
+*Only silence kills the fear.*
+
+It was a peasant song. A nursery rhyme. Something the grandmothers hummed to babies to make them sleep. It was not history. It was just a memory.
+
+But it was true.
+
+Gaelen scrambled down the stairs. He ran into the street. The fog was thick now, swirling around his ankles.
+
+"Sing!" he screamed at the woman. "Sing louder!"
+
+She looked at him, terrified.
+
+"Sing!" Gaelen commanded, his voice cracking. "It is the only sword we have left!"
+
+He joined her. His voice was thin and reedy, hers was rough and tired. But they sang.
+
+*Close the eye and still the breath...*
+
+Others heard them. At first, they were confused. This was not a war song. This was a lullaby. But as the Shadow pressed closer, and their swords grew heavy and useless, the truth of the song resonated in their bones. It felt like a memory they didn't know they had.
+
+One by one, the people dropped their weapons. They closed their eyes. They stilled their breath. They stopped trying to be heroes and started trying to be invisible.
+
+The Shadow faltered. It swirled around them, seeking the fear, seeking the aggression. But it found only stillness. It found no hook to catch on.
+
+Slowly, sullenly, the fog receded. It flowed back out the gates, leaving the city cold, but alive.
+
+The King was gone. The knights were gone. The golden book was ruined by the damp.
+
+Gaelen survived. He spent the rest of his days in the library, scraping the gold leaf from the pages of his history. He wrote the truth back in, in plain, black ink. He wrote of the fear. He wrote of the hiding. He wrote of the cost.
+
+And in the margin of the last page, he wrote a single line for the generations to come:
+
+*Do not polish the scar. It is the only place where the skin is tough enough to bear the weight.*
+
+*—The Chronicler’s Penance.*
