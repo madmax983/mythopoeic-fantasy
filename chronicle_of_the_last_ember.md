@@ -1122,3 +1122,77 @@ And in the margin of the last page, he wrote a single line for the generations t
 *Do not polish the scar. It is the only place where the skin is tough enough to bear the weight.*
 
 *—The Chronicler’s Penance.*
+
+---
+
+# The Ferryman of the Silent Tide
+
+*From the Ledger of Lost Crossings, kept by the Brotherhood of the Oar.*
+
+The River Arath had not flowed for six generations. Its bed was a scar of cracked mud and white stones, winding through the valley like the spine of a dead dragon. The bridges still stood, absurd stone arches spanning nothing but dust and scrub grass.
+
+Torrin was the Ferryman. He was not old, but he had the stillness of a man who watches the horizon. He lived in the toll-house by the Ford of Sorrows. There was no water to ford, and no one paid the toll. Travelers simply walked across the dry bed, kicking up dust.
+
+"Why do you stay?" asked the merchants. "The water is gone. It will not return."
+
+"The river sleeps," Torrin would answer. "It does not die."
+
+Every day, Torrin tended the great flat-bottomed barge, the *Ironwood*. He oiled the hull. He checked the poles. He mended the ropes. The wood was black and hard as stone, seasoned by centuries of waiting.
+
+The Town Council, practical men with ledgers and plans, came to him.
+
+"We need the wood," they said. "The winter is coming. The barge is rotting. It is an eyesore. We will break it down for the schoolhouse roof."
+
+"You cannot," Torrin said. "It is the only vessel."
+
+"Vessel for what?" they laughed. "Dust? Wind?"
+
+"For the Tide," Torrin said.
+
+They called him mad. But they did not take the boat, for the Ironwood was too hard for their axes, and Torrin stood before it with a boat-hook that looked like a spear.
+
+Then the Grey Tide came.
+
+It was not water. It was not rain. It began as a whisper in the mountains. Then a mist. Then a rolling, silent avalanche of fog that poured down the ancient river channel.
+
+It was heavier than air. It flowed like water, but cold and suffocating. It filled the valley floor.
+
+Those who were in the riverbed—the farmers who had planted crops in the rich silt, the children playing—they did not swim. They sank. The Grey Tide swallowed sound, breath, and light.
+
+The townspeople ran to the banks. They watched the grey flood rise. It cut the town in half. The bridges were too high; the fog flowed under them, but the people on the far side were trapped, for the fog was rising to the streets.
+
+"Help us!" they cried. But their voices were muffled, faint.
+
+Torrin pushed the *Ironwood* off the blocks.
+
+He stepped into the barge.
+
+The boat did not scrape on the stones. It floated.
+
+It floated on the fog. It rode the silence.
+
+Torrin took the pole. He pushed off.
+
+The barge drifted out onto the Grey Tide. The fog swirled around the hull, but did not enter. The Ironwood, seasoned by belief and care, repelled the emptiness.
+
+He poled across the invisible current. He reached the trapped families. He pulled them aboard.
+
+"Don't look down," he told them. "Look at the pole. Look at the shore."
+
+If they looked down into the grey, they saw the shapes of their fears. They saw the faces of the forgotten.
+
+He made twelve crossings that night.
+
+He ferried the living. He ferried the memories.
+
+When the dawn came, the Grey Tide receded, leaving only dew and a silence that felt clean, like a washed slate.
+
+The townspeople never asked for the wood again.
+
+They say Torrin is gone now, but the barge remains. And when the moon is full, and the mist gathers in the hollows, they see a shadow standing at the stern, poling against the weight of the night, keeping the passage open.
+
+*The water may dry, the bank may break,*
+*But the boat must wait for the river's sake.*
+*For the tide returns when the world is grey,*
+*To carry the lost to the light of day.*
+*—Inscribed on the hull of the Ironwood.*
