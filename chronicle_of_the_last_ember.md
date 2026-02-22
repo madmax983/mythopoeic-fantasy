@@ -1196,3 +1196,92 @@ They say Torrin is gone now, but the barge remains. And when the moon is full, a
 *For the tide returns when the world is grey,*
 *To carry the lost to the light of day.*
 *—Inscribed on the hull of the Ironwood.*
+
+
+---
+
+# The Watcher of the Weeping Stone
+
+*A fragment recovered from the journals of the Silent Order, found in the high pass of Oroduin.*
+
+The Weeping Stone was not a monument built by hands. It was a jagged, ugly splinter of black rock that thrust up from the valley floor, weeping a constant, slow trickle of water from a fissure near its peak. The water was cold and tasted of iron. It did not pool at the base but vanished into the thirsty earth.
+
+For generations, those who carried a grief too heavy to speak would travel to the valley. They did not come to be healed. They came to be heard. They would stand before the stone, or kneel in the dust, and they would let their own tears join the water on the rock.
+
+Elias was the Watcher. He was a man who had forgotten his own age. His hair was the color of the dust, and his eyes were the color of the stone—dark, unyielding, but not unkind. He did not offer tissues. He did not offer platitudes. He did not say, "It will get better." He simply stood at the edge of the clearing, a silent witness to the truth of their pain.
+
+One autumn, when the leaves were turning the color of old blood, a stranger arrived. He rode a cart painted a cheerful yellow, drawn by a horse with a glossy coat. The stranger himself was round and soft, with a face that seemed to have no sharp edges. He smiled constantly, a smile that didn't reach his eyes but sat pleasantly on his mouth.
+
+"Why so much sorrow?" the stranger asked, looking at the small crowd gathered by the stone. "Why this waste of energy?"
+
+"It is not waste," Elias said, leaning on his staff. "It is tribute."
+
+The stranger laughed, a sound like coins clinking together. "It is inefficient. Grief clouds the mind. It slows the hand. It serves no purpose."
+
+He set up a stall near the entrance to the clearing. He unpacked bottles of clear, sweet-smelling liquid.
+
+"Come!" he called to the mourners. "Why weep? I have a balm that washes the memory of pain away. One sip, and the heavy heart is light. One sip, and you can return to your work, your life, your joy."
+
+A young man, grieving a lost love, was the first to approach. He drank the draught. His shoulders straightened. The lines of agony around his mouth smoothed out. He looked at the Weeping Stone with a puzzled expression.
+
+"I... I feel fine," he said. "I don't know why I came here."
+
+He left, walking briskly, whistling a tune.
+
+Others followed. A mother who had lost a son. A husband who had lost a wife. They drank, and the weight lifted. They smiled, thanked the stranger, and left. The valley, usually filled with the low murmur of sorrow, grew quiet.
+
+Elias watched. He saw that the people did not just lose their pain. They lost the shadow that gave them depth. Their eyes became flat, like polished glass. They did not look back at the stone. They did not remember why they had come.
+
+Soon, only one woman remained. Her name was Sola. She was small and fierce, her hands calloused from work, her face ravaged by the loss of her only child. She knelt by the stone, her forehead pressing against the wet rock.
+
+The stranger approached her. "Sister," he said softly. "Why do you cling to this ugliness? Your child is gone. Your tears will not bring him back. Drink, and be free."
+
+Sola looked up. Her eyes were red and swollen, but they were burning.
+
+"I do not want to be free," she rasped.
+
+"But it hurts," the stranger cooed. "It is a fire in your blood. Let me put it out."
+
+"The fire is all I have left of him," Sola said. "His laugh is in the fire. His small hands are in the fire. If you put it out, he is gone forever."
+
+The stranger’s smile faltered. For a moment, his face looked hungry. "You are being selfish," he said, his voice dropping an octave. "You are useless to the world like this. You are a broken tool."
+
+"I am not a tool," Sola stood up. She was shaking, but she did not back down. "I am a mother. And I will hurt as long as I must."
+
+The stranger reached out. "You will drink," he hissed. "I will not have this... discord."
+
+Elias stepped between them. He did not raise his staff. He simply stood there, a figure of dust and stone.
+
+"Leave her," Elias said.
+
+"She is suffering!" the stranger cried, assuming the mask of benevolence again.
+
+"She is living," Elias said. "You offer a death without a grave. You steal the cost of love and call it charity."
+
+The stranger snarled. It was not a human sound. It was the sound of a void trying to swallow a star. He lunged at Elias.
+
+But Sola moved. She did not strike him. She simply wailed.
+
+It was a sound of pure, unadulterated agony. It was a scream that tore the sky. It was ugly. It was jagged. It was real.
+
+The sound hit the stranger like a physical blow. He was a creature of smooth surfaces, of easy answers, of pleasant lies. The raw, jagged reality of her grief was a frequency he could not endure. It vibrated in his bones. It shattered his cheerful yellow cart. It cracked his bottles, spilling the sweet, numbing poison into the dust.
+
+He shrieked, covering his ears, and fled. He ran not from a weapon, but from the unbearable weight of a truth he could not digest.
+
+Sola fell back against the stone, sobbing. Elias knelt beside her. He did not hush her. He waited until the storm passed.
+
+"He is gone," Elias said softly.
+
+Sola wiped her face. "I still hurt," she whispered.
+
+"I know," Elias said. "But the hurt is yours. It is the shape of your love. Do not let anyone smooth it away."
+
+They say Sola visited the valley for many years. The pain did not vanish, but it changed. It became less like a fire and more like the water on the stone—a constant, quiet presence that nourished something deep in the earth.
+
+And they say that the flowers that grow in that valley now are not bright or showy, but they have a scent that reminds travelers of the things they have loved and lost, a scent that makes them weep, and in weeping, remember.
+
+*The wound is the place where the light enters,*
+*The tear is the prism where the soul centers.*
+*To heal too soon is to hide the scar,*
+*And forget the cost of who we are.*
+*—Carved into the base of the Weeping Stone.*
