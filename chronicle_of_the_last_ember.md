@@ -1395,3 +1395,121 @@ The King took the grey bolt and placed it in the Royal Museum, not as a tool, bu
 *Soft is the path of the sudden flame,*
 *Hard is the road that bears no name.*
 *—Etched into the anvil of Tharn.*
+
+---
+
+# The Wayfarer of the Winding Road
+
+*A fragment found in the satchel of a lost courier, attributed to the oral traditions of the Borderlands.*
+
+The Road to Oakhaven was not straight. It was a ribbon of beaten earth that coiled through the hills like a lazy river. It doubled back on itself, skirted around empty fields, and climbed ridges only to descend into valleys that seemed to lead nowhere.
+
+Jarin was the Wayfarer. He was not a guide, for he led no one. He was a walker. His boots were worn thin, his cloak was the color of dust, and his face was mapped with the same lines as the hills he traversed. Every morning, he walked the road from the village to the high pass, and every evening, he walked back.
+
+"Why does the road wind so?" asked the new Surveyor, a man sent from the capital with instruments of brass and glass. "It is inefficient. A straight line is the shortest distance between two points."
+
+"The road does not seek the shortest distance," Jarin said, his voice quiet as the wind in the dry grass. "It seeks the safe distance."
+
+"Safe from what?" the Surveyor asked, looking at the empty, peaceful hills. "There are no bandits here. No beasts. Only silence."
+
+"The silence is what we walk around," Jarin said.
+
+The Surveyor laughed. He was a man of reason, of angles and measurements. He saw the world as a problem to be solved, and the winding road was a very sloppy solution.
+
+"We will build a new road," the Surveyor declared. "A King's Highway. Straight as an arrow. Broad and paved with stone. It will cut the journey in half. Trade will flourish. The village will prosper."
+
+Jarin looked at the hills. He looked at the old, beaten path that hugged the contours of the land like a lover.
+
+"Do not cut the silence," Jarin warned. "It is not empty. It is heavy."
+
+But the Surveyor did not listen. He planted his stakes. He drew his lines. The workers came with picks and shovels. They cut through the ridges. They filled the valleys. They built a road that was a marvel of engineering, a grey scar of stone that shot straight across the landscape, ignoring the land's ancient, unspoken refusal.
+
+The villagers were delighted. "We can reach the market in an hour!" they cheered. "We can sell our grain before noon!"
+
+They abandoned the old road. The grass began to reclaim it. The ruts filled with rain. The path faded, becoming a ghost of a memory.
+
+Jarin continued to walk it.
+
+He walked the invisible turns. He climbed the ridges that no longer needed climbing. He skirted the empty fields where the silence lay thickest.
+
+"Why do you persist, old man?" the villagers mocked as they sped past him on the new highway, their carts rattling on the smooth stone. "You are walking in the past."
+
+"I am walking the border," Jarin whispered.
+
+Months passed. The village grew rich. But a strange malaise settled over Oakhaven.
+
+The people became irritable. They forgot their dreams. Their sleep was dreamless and black. The bread they baked tasted like ash. The songs they sang felt hollow, the notes falling flat before they reached the air.
+
+Travelers on the King's Highway reported a strange sensation—a coldness that seeped into their bones, a heaviness that pressed on their chests. They arrived at their destination faster, but they felt... less. As if a piece of them had been left behind in the blur of the journey.
+
+"It is the altitude," the Surveyor said, dismissing the complaints. "It is the speed of modern life."
+
+But Jarin knew.
+
+He felt the Silence leaking.
+
+The old road had been a stitching, a hem that held the fabric of the world together. It wound around the thin places, the spots where the veil between the Seen and the Unseen was worn through. By ignoring the turns, by cutting straight through the heavy air, the new road had torn the stitch.
+
+The Silence was not just an absence of sound. It was an absence of *being*. It was a void that hungered for substance. And now, the highway was feeding it. Every traveler who rushed past was paying a toll they did not know they owed—a toll of memory, of feeling, of soul.
+
+One evening, the Surveyor was riding his horse back to the capital. He was proud of his work. He spurred his horse to a gallop.
+
+Suddenly, the horse stopped. It did not rear. It simply... ceased to move. It stood trembling, its eyes wide with a terror that had no shape.
+
+The Surveyor looked down. The road ahead was gone.
+
+Not broken. Not washed away.
+
+Just... gone.
+
+In its place was a grey, featureless mist. And the mist was eating the stone. It was eating the grass. It was eating the light.
+
+The Surveyor turned to run, but the mist was behind him too. He was trapped on a shrinking island of reality.
+
+Then he saw Jarin.
+
+The old man was walking on the hillside, following the curve of the old, invisible road. He was moving slowly, his staff tapping the ground with a rhythmic, steady beat.
+
+*Tap. Step. Tap. Step.*
+
+The Surveyor shouted. "Help me! The world is ending!"
+
+Jarin stopped. He looked at the straight road, now a broken line in the void. He looked at the Surveyor, a small, terrified figure in a universe of grey.
+
+"The straight line breaks," Jarin called out, his voice strong and clear. "Only the winding way holds."
+
+"Show me!" the Surveyor cried. "Show me the path!"
+
+"I cannot show you," Jarin said. "You must walk it. And to walk it, you must leave your horse. You must leave your instruments. You must leave your hurry."
+
+The Surveyor looked at his expensive horse. He looked at his brass sextant. He looked at the encroaching nothingness.
+
+He dismounted. He dropped the instruments. He stepped off the paved road and into the tall grass.
+
+He felt the ground under his boots—uneven, rocky, real.
+
+"Follow the silence," Jarin said. "Do not walk where it is easy. Walk where it is hard."
+
+Jarin turned and continued his walk. The Surveyor stumbled after him. He could not see the path. He had to feel for the places where the earth pushed back, where the air felt thickest. He had to walk around the emptiness he had tried to ignore.
+
+It took them all night to cross the hills. It was a journey of miles to cross a distance of yards. But with every step, the Surveyor felt the weight in his chest lighten. He remembered his mother's face. He remembered the taste of apples. He remembered how to weep.
+
+When dawn broke, they were at the high pass. The King's Highway was a ruin, cracked and consumed by the reclaiming wild. But the old road—the winding, inefficient, difficult road—was there, faint but unbroken, a golden thread in the morning light.
+
+Jarin sat on a rock, wiping his brow. He looked very tired.
+
+"The road remembers," Jarin said. "But it needs feet to remind it."
+
+The Surveyor sat beside him. He looked at his boots, covered in mud. He looked at his hands, empty of tools.
+
+"I will walk it," the Surveyor said.
+
+And he did. He never built another road. He became the Wayfarer after Jarin, walking the long, winding path every day, keeping the stitch tight, protecting the world from the efficiency that would unravel it.
+
+They say the King's Highway is still there, patches of flat stone lost in the briars. But no one walks it. They take the long way. They take the winding way. And when they arrive, they are tired, and their boots are muddy, but they are whole.
+
+*The straight path cuts the spirit thin,*
+*The winding way keeps the soul within.*
+*To save the world, you must not run,*
+*But walk the circle round the sun.*
+*—Inscribed on a wooden marker at the start of the Old Road.*
