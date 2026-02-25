@@ -1513,3 +1513,101 @@ They say the King's Highway is still there, patches of flat stone lost in the br
 *To save the world, you must not run,*
 *But walk the circle round the sun.*
 *—Inscribed on a wooden marker at the start of the Old Road.*
+
+---
+
+# The Keeper of the Unshut Gate
+
+*Recovered from the nursery rhymes of the North Hold, dated to the Winter of the Broken Seal.*
+
+The Hall of Haldor was not built to keep the cold out, but to give the fire a place to burn. It stood on the high pass, where the wind sharpened itself on the rocks before descending to the valleys.
+
+Thorel was the Doorkeeper. He was not a warrior, nor a mage. He was a man of stiff joints and slow speech. His duty was simple: to keep the Great Door of the Hall unlatched. Not wide open, for that would let in the snow, but unlatched, so that a thin draft always whispered across the floor.
+
+"Why?" asked the new Steward, a man of velvet and warm wine. "It is freezing in here. The drafts kill the old and sicken the young. We must seal the Hall."
+
+"The fire needs the breath," Thorel said, pointing to the great hearth where the logs burned with a clean, blue flame. "If you choke the door, you choke the fire."
+
+"The fire has a chimney," the Steward scoffed. "It has air enough. What it needs is to not be wasted on heating the whole mountain."
+
+Thorel stood before the door. "The door is not a wall," he said. "It is a hand that is always open. If you close the hand, it becomes a fist."
+
+But the Steward was the master of the Hall. He ordered the carpenters to come. They fitted the Great Door with a heavy iron latch. They stuffed the cracks with wool and wax. They hung heavy tapestries over the wood.
+
+Thorel was sent to the kitchens, for there was no door to keep.
+
+At first, the Hall was warm. The people praised the Steward. They took off their heavy furs. They laughed and drank, and the music of the harp seemed louder in the still air.
+
+But then, the fire changed.
+
+It did not go out. It turned a sullen, smoky red. It no longer gave off a clean heat; it gave off a heavy, sleepy warmth that made the head ache and the limbs heavy. The smoke did not go up the chimney; it curled into the room, smelling of old, burnt dreams.
+
+The people grew lethargic. They slept long hours and woke unrefreshed. They forgot their stories. They forgot their names. They sat by the dull, red fire, staring into the embers, seeing nothing.
+
+The Steward sat in his high chair, his velvet robe heavy on his shoulders. He felt a terrible, crushing weight in his chest. "Why is the air so thick?" he whispered. "Why is the silence so loud?"
+
+Thorel, in the kitchen, felt the change. He felt the Hall suffocating. The "Breath" from the mountain, the cold, sharp truth of the world, was locked out. And without the truth, the comfort was becoming a poison.
+
+He went to the Great Hall. The air was like soup. The people were slumped over the tables, asleep or in a trance. The fire was a dying eye, watching them with malice.
+
+Thorel walked to the door. The tapestry was heavy, like a shroud. He pulled it down.
+
+He put his hand on the latch. It was cold, so cold it burned. The iron had fused with the wood. The wax and wool had turned to ice, binding the door to the frame. The Hall had become a tomb.
+
+"Open," Thorel grunted.
+
+He pulled. The latch did not move. The silence in the room pressed against his ears.
+
+He looked for a tool. There was none. The Steward had been thorough.
+
+Thorel looked at his own hand. It was old. It was gnarled. But it was available.
+
+He placed his shoulder against the wood. He took the frozen iron handle in both hands. He did not try to slide it; he tried to break it.
+
+"The door must breathe!" he shouted. His voice was cracked and thin, but it broke the heavy silence.
+
+He pulled. The skin of his palms tore, freezing to the iron. The pain was sharp, a sudden, bright clarity in the dull room.
+
+He pulled harder. He felt a tendon snap in his shoulder.
+
+*Crack.*
+
+It was not the latch. It was his own bone.
+
+But the sound woke the fire. A spark of blue shot up from the red embers.
+
+Thorel screamed, a raw, ugly sound. He threw his whole weight, his pain, his life against the seal.
+
+*CRACK.*
+
+The ice gave way. The latch shattered.
+
+The Great Door groaned and swung open, just a crack.
+
+The wind rushed in. It was freezing. It carried snow and the scent of pine and stone. It cut through the stale warmth like a knife.
+
+The fire roared. It turned blue, then white. The smoke was sucked up the chimney in a great, rushing vortex.
+
+The people woke up. They shivered. They pulled their furs tight. Their teeth chattered.
+
+"It is cold!" the Steward cried, his eyes wide and clear. "It is so cold!"
+
+"Yes," Thorel whispered, sinking to the floor, his arm useless, his hands ruined. "It is cold. It is real."
+
+The Steward looked at the open door, at the snow drifting in across the stone floor. He looked at the fire, now burning bright and clean. He looked at Thorel.
+
+He understood then. The warmth they had bought was the warmth of decay. The cold was the price of life.
+
+He went to Thorel. He did not close the door. He took his own velvet robe and wrapped it around the old man's shoulders.
+
+"Leave it," the Steward commanded the servants who rushed to shut the gap. "Leave it unlatched."
+
+They say the Hall of Haldor is the coldest hall in the North. Guests complain of the draft that always runs along the floor. But they also say that the fire there is the brightest in the world, and that those who sit by it never forget who they are.
+
+And Thorel, the One-Handed, sat by the door until he died, the Guardian of the Draft, reminding all who entered that comfort is a dangerous thing, and that sometimes, the door must be left open for the wind to keep the soul awake.
+
+*The hearth needs the wind, the soul needs the sting,*
+*To wake from the sleep of a comfortable king.*
+*For a wall without doors is a grave in the stone,*
+*And the fire burns best when the cold is known.*
+*—Carved into the lintel of the Great Door of Haldor.*
