@@ -1513,3 +1513,143 @@ They say the King's Highway is still there, patches of flat stone lost in the br
 *To save the world, you must not run,*
 *But walk the circle round the sun.*
 *—Inscribed on a wooden marker at the start of the Old Road.*
+
+---
+
+# The Keeper of the Unshut Gate
+
+*A tale recovered from the frost-rimed journals of the Northern Watch, dated to the Year of the Long Night.*
+
+The High Hall of Haldor was built on the shoulder of the world, where the wind sharpened its teeth on the granite peaks. It was a fortress against the cold, with walls as thick as a man is tall and a hearth that could roast an ox whole.
+
+Thorel was the Doorkeeper. He was an old man, gnarled as the mountain pine, with hands that had forgotten how to be soft. His duty was simple, yet terrible. He tended the Great Door of the North.
+
+The door was made of black ironwood, bound in bands of meteoric steel. It was heavy enough to stop a charging bull. But Thorel never closed it.
+
+Day and night, winter and summer, he kept the latch lifted. He kept the door ajar, just the width of a knife blade.
+
+Through that crack, the wind whistled. It brought the smell of snow, the bite of frost, and the silence of the stars. It made the hall drafty. It made the fire sputter. It made the people shiver in their sleep.
+
+"Why do you torture us?" asked the new Lord of Haldor, a young man who had come from the soft valleys of the south. He wore furs of ermine and drank wine warmed with spices. "The hall is a sieve. We burn a forest of wood and still the cold creeps in."
+
+"The door must breathe," Thorel said, his voice like grinding stones. "If you shut the mouth, the house dies."
+
+"Superstition," the Lord scoffed. "A house is not a beast. It does not breathe. It is a shelter. Its purpose is to keep the cold out."
+
+"The cold is not the enemy," Thorel said. "The stagnation is the enemy. The wind is the guest. If you bar the guest, the host becomes a prisoner."
+
+The Lord did not listen. He was a man of comfort, and he believed that suffering was a failure of engineering. He ordered the smiths to forge a new latch, a heavy bar of bronze that would seal the door tight. He ordered the masons to pack the cracks with wool and wax.
+
+"Close it," the Lord commanded.
+
+Thorel stood before the door. He looked at the sliver of grey light, the thin line of the world's breath.
+
+"Do not," he said. "The fire needs the draft to know it is alive."
+
+The Lord signaled his guards. They pulled Thorel away, not unkindly, for he was old and respected. They slammed the great door.
+
+*BOOM.*
+
+The sound was final. The latch fell. The wax was packed.
+
+The hall became silent. The whistle of the wind ceased. The draft stopped.
+
+Immediately, the hall began to warm. The fire in the hearth roared up, no longer fighting the cold air. The people smiled. They took off their heavy cloaks. They toasted the Lord's wisdom.
+
+"See?" the Lord said, basking in the heat. "We have conquered the winter."
+
+For a week, the hall was a paradise. It was warm, still, and comfortable.
+
+But then, the fire changed.
+
+It did not burn orange or yellow. It began to burn with a dull, sleepy red light. It gave off heat, but no cheer. The smoke did not rise up the chimney; it curled lazily into the room, smelling not of woodsmoke, but of old, stagnant air.
+
+The people grew lethargic. They slept long hours and woke unrefreshed. Their dreams were heavy, filled with grey fog. They stopped telling stories. They stopped singing. They sat by the dull fire, staring into the embers, forgetting why they were there.
+
+The Lord sat on his throne, his head heavy. "It is... so warm," he murmured. "So peaceful."
+
+Thorel sat by the door. He felt the cold on the other side, scratching at the wood. He felt the wind battering the stone, angry at the silence.
+
+He saw the frost begin to grow—not on the outside, but on the *inside*.
+
+It was not white frost. It was black frost. It crept from the corners of the room, a dark, fungus-like growth that ate the light. It covered the tapestries. It dulled the gold cups. It crept over the boots of the sleeping guards.
+
+"The house is dying," Thorel whispered. "It is suffocating."
+
+He tried to stand. His legs were heavy, as if the air itself was pressing him down. The stagnant warmth was a weight.
+
+He looked at the Lord. The young man was asleep, the black frost creeping up his ermine robes.
+
+Thorel dragged himself to the door.
+
+He reached for the bronze latch. It was warm to the touch, unpleasantly so, like fevered flesh.
+
+He pulled.
+
+It did not move.
+
+The wax and wool had melted and fused with the wood. The door had sealed itself. It had become a wall.
+
+"Open," Thorel croaked.
+
+The door remained shut. The silence of the room was deafening. The only sound was the slow, wet breathing of the sleepers.
+
+Thorel looked at his hands. They were old. They were weak.
+
+He looked at the black frost. It was inching across the floor toward the fire. If it reached the hearth, the last spark would die, and the hall would become a tomb.
+
+"Power asks a price," he remembered.
+
+He did not have magic. He had bone and blood.
+
+He jammed his fingers into the crack between the door and the frame, where the wax had sealed it. The heat of the fused seal burned him.
+
+He pulled. He put his shoulder against the stone and pulled with every ounce of strength in his withered body.
+
+He felt a tendon snap in his arm. He felt the skin tear on his fingers.
+
+He did not stop. He thought of the wind. He thought of the cold, clean air that cut the lungs and woke the spirit.
+
+"Breathe!" he screamed.
+
+With a sound like a cracking rib, the seal broke.
+
+The door groaned. The heavy bronze latch, stressed by the unnatural seal, snapped.
+
+The door swung open—just a crack. Just the width of a knife blade.
+
+*WHOOSH.*
+
+The air rushed in. It was a scream of wind, a blast of freezing cold that cut through the stagnant warmth like a sword.
+
+It hit the fire. The dull red embers flared up, roaring into a bright, angry orange. The smoke was sucked up the chimney.
+
+The black frost shrieked—a high, thin sound—and evaporated into grey dust.
+
+The Lord woke with a gasp. The guards jumped up, reaching for swords that were no longer there. The people sat up, shivering, their teeth chattering, but their eyes clear.
+
+Thorel lay by the door, his arm ruined, his breath coming in shallow gasps. The cold wind blew over him, freezing the sweat on his brow.
+
+The Lord ran to him. He felt the draft. He shivered violently.
+
+"Close it!" a guard shouted, moving to slam the door.
+
+"No!" the Lord cried.
+
+He looked at the fire, burning bright and hungry. He looked at the vanishing black frost. He looked at Thorel’s shattered arm.
+
+"Leave it," the Lord whispered. "Leave it ajar."
+
+He took off his ermine cloak and laid it over the old doorkeeper.
+
+"We will freeze," the guard muttered.
+
+"Yes," the Lord said, pulling his tunic tighter. "We will freeze. And we will live."
+
+Thorel did not die, though he never used his right arm again. He sat by the door for the rest of his days, the guardian of the crack, the watcher of the draft. And the people of Haldor learned to love the shiver, for it told them that the air was new, and the door was open, and the house was awake.
+
+*The fire loves the breath of night,*
+*The cold preserves the burning light.*
+*A comfort bought with bolted door,*
+*Is sleep that wakes to wake no more.*
+*—Carved into the lintel of the High Hall.*
