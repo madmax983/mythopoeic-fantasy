@@ -1611,3 +1611,99 @@ And Thorel, the One-Handed, sat by the door until he died, the Guardian of the D
 *For a wall without doors is a grave in the stone,*
 *And the fire burns best when the cold is known.*
 *—Carved into the lintel of the Great Door of Haldor.*
+
+---
+
+# The Carver of the Crooked Rune
+
+*A tale recited by the traveling tinkers of the Oakhaven roads, before the Long Winter.*
+
+The village of Heth was ringed by the Standing Stones. They were not tall or grand, but they were old, older than the memory of the first men who settled the valley. Carved into their weathered faces was the Covenant of the First Morning, a story told in a language that sounded like grinding rocks and rushing water.
+
+As long as the stones stood and the words were legible, the creeping Grey—the slow, devouring silence that ate the edges of the world—could not enter.
+
+Mael was a stonecarver’s apprentice, though he had no gift for the art. His hands were thick, his fingers clumsy, and his letters were always slightly askew. Because he could not be trusted with the fine work of gravestones or lintels, his master gave him the task of scrubbing the moss from the Standing Stones every spring.
+
+Mael did not know what the words meant. But he knew their shapes. He knew the depth of the grooves, the sharp angles that bit into his scrubbing brush, the way the stone felt colder inside the carved lines.
+
+One year, the Magistrate of Heth—a man of ledgers and practical plans—looked at the stones and shook his head.
+
+"They take up too much arable land," the Magistrate said to the village elders. "And the weathering is ruining the text. We are losing our history to the rain."
+
+His solution was eminently reasonable. He commissioned the finest scribes in the city to copy the Covenant onto sheets of pure, unblemished vellum. The vellum would be kept in a velvet-lined box in the new library, safe from the elements.
+
+"And what of the stones?" the elders asked.
+
+"We will uproot them," the Magistrate said. "They are excellent granite. We can use them to build the foundation for a new, larger grain silo. Thus, we preserve our history and secure our future at once."
+
+It was a brilliant plan. No one argued.
+
+They dug up the stones. The deep, grinding language of the First Morning was laid flat and mortared into the earth. A great wooden silo was built upon them. The vellum was locked in the library, beautiful and safe.
+
+Mael watched it happen. He felt a dull ache in his chest, a sense that something heavy had been made terrifyingly light.
+
+"They saved the words," his master told him, clapping him on the shoulder. "The stories are safe."
+
+"The ink has no depth," Mael muttered.
+
+"Nonsense," his master laughed. "A word is a word."
+
+But the Grey was not a reader of books. The Grey was a pressure, a vast, patient emptiness that tested the walls of the world to see what would hold. The Standing Stones had held because they were an anchor, a story bound to the earth by the sweat and intent of the ancient carvers. The vellum was just a picture of an anchor.
+
+Autumn came, and with it, the Grey.
+
+It did not arrive as an army. It arrived as a loss of appetite. It arrived as a sudden, inexplicable exhaustion that made the farmers lay down their scythes mid-swing. The colors bled from the leaves before they fell. The air grew stale, tasting of old copper.
+
+The Magistrate went to the library to consult the vellum, perhaps to read the Covenant aloud. When he opened the velvet box, he found nothing but a handful of fine, grey dust. The Grey had touched the light, effortless copy, and erased it.
+
+Panic set in, but it was a quiet, sleepy panic. The people huddled in their homes, waiting for the silence to swallow them.
+
+Mael did not go home. He went to the new silo.
+
+He brought his heaviest mallet and his thickest chisel. The foundation stones—the ancient Standing Stones—were mostly buried, but the largest of them formed the cornerstone, its surface worn smooth by the masons to make a flat base.
+
+Mael knelt in the freezing dirt. The Grey was gathering around him, a fog that sapped the strength from his arms and whispered that he was tired, that his work was useless, that he should sleep.
+
+He raised the chisel.
+
+He could not carve the whole Covenant. He did not know the words. But he remembered one shape. It was the central rune of the tallest stone, a shape like a shattered oak tree. He did not know it meant *Endurance*. He only knew it was the hardest to clean because it was cut the deepest.
+
+He struck the chisel. *Clack.*
+
+The sound was pathetically small against the vast silence.
+
+The granite was incredibly hard, harder than any stone he had worked before. The chisel bounced, leaving only a scratch.
+
+"It is too hard," the Grey whispered in his mind. "You are too clumsy."
+
+"I am clumsy," Mael said through gritted teeth. "But I am here."
+
+He struck again. Harder. The shock traveled up his arm, rattling his teeth.
+
+He hit the stone again and again. His hands slipped, the mallet crushing his thumb. He did not stop. Blood ran down the handle, mixing with the stone dust. The pain was sharp and real, anchoring him against the numbing fog.
+
+He carved the rune. It was not elegant. It was jagged, crooked, and uneven. The lines were rough, born of brute force and desperate obedience to a memory.
+
+As he struck the final blow, the chisel shattered, burying a shard of iron in his hand. Mael collapsed against the stone, weeping from the pain.
+
+The Grey surged forward, rolling over the village, turning the wooden houses pale, seeking the grain in the silo to rot it from within.
+
+It hit the cornerstone.
+
+It hit the crooked rune.
+
+The rune was not a beautiful representation of a story. It was a raw, bleeding wound in the earth, paid for in pain and stubbornness. It was heavy. It was undeniable.
+
+The Grey struck the jagged lines and shattered. The silence broke with a sound like a thunderclap. The fog recoiled, unable to digest the sheer, bloody reality of the carved stone. It flowed around the silo, around the village, and washed away down the valley, leaving Heth cold, terrified, but intact.
+
+They found Mael the next morning, curled around the base of the silo, his hand ruined.
+
+The Magistrate, pale and shaken, looked at the ugly, crooked mark on his perfect foundation. He did not order it removed.
+
+Mael never became a master carver. His hand never fully healed, and he spent his days sweeping the masonry shop. But the silo stands to this day. And they say that when the winter wind blows hard, the people of Heth do not look to the library for comfort. They go to the silo, and they run their fingers along the jagged edges of the crooked rune, drawing strength from the ugliness that held the dark at bay.
+
+*The smooth page burns, the fine ink fades,*
+*When shadow falls across the glades.*
+*But the crooked mark in the bleeding stone,*
+*Will stand when the world is left alone.*
+*—A children's skipping rhyme from the village of Heth.*
