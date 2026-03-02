@@ -1713,3 +1713,86 @@ They say Orin still lives in Oakhaven. The Magistrate takes care of him. He is a
 *—From the Book of the Boundary, newly inscribed by the Magistrate's hand.*
 
 ---
+---
+
+# The Minstrel of the Silent String
+
+*A teaching story of the Wandering Guild, found written on the back of a tavern slate in the Lowlands.*
+
+The Court of King Alaric was a place of unceasing noise. Not the noise of war or industry, but the noise of distraction. The King feared silence. In silence, he remembered the wars he had started, the promises he had broken, the son he had lost. So he filled his halls with jesters, with bards, with clocks that chimed every quarter hour.
+
+Seren came to the court with a harp made of white ash. It was a beautiful instrument, carved with leaves and vines. But it had a flaw. The highest string, the one that should sing like a lark, was missing.
+
+"Why is your harp broken?" the King asked, his voice edgy with the constant need for sound. "I pay for wholeness. Fix it."
+
+"It is not broken, Majesty," Seren said. "It is open."
+
+"Open to what?"
+
+"To the part of the song that cannot be heard."
+
+The King laughed, a brittle sound. "Play," he commanded. "But do not stop. If the silence comes, you leave."
+
+Seren began to play. His fingers danced on the strings. The music was rich and complex, a tapestry of sound that wove through the crowded hall. The courtiers stopped their chatter. The jesters sat down. The King leaned back, his eyes closing, lulled by the melody.
+
+But every now and then, Seren's hand would reach for the missing string. He would pluck the air where the wire should have been.
+
+*Pluck.*
+
+Silence.
+
+It was a tiny gap, a heartbeat of nothingness in the flow of the music.
+
+At first, the King did not notice. But the gaps were rhythmic. They were part of the song. *Note, note, chord, silence. Note, run, trill, silence.*
+
+The silence was not empty. It was heavy. It was a space where the music stopped to breathe, and in that breath, the things the King was trying to forget rushed in.
+
+In the first silence, he saw the face of his dead son.
+In the second, he heard the cry of the widow he had ignored.
+In the third, he felt the cold weight of his own crown.
+
+The King opened his eyes. "Stop!" he cried. "Play the notes! Fill the gap!"
+
+"The gap is the note, Majesty," Seren said, his hand still moving. "The music creates the shape, but the silence creates the meaning. Without the pause, the song is just noise."
+
+He plucked the empty air again.
+
+The King stood up. "I will not hear it!" he shouted. But he *was* hearing it. He was hearing the silence louder than the harp. The silence was a mirror, and he could not look away.
+
+"Guard!" the King roared. "Take the harp! String it! Make it scream if you have to, but do not let it be silent!"
+
+The guards seized the harp. They brought a spool of silver wire. They strung the missing note. They handed it back to Seren.
+
+"Play," the King commanded, sweating. "Play it all."
+
+Seren looked at the King. He looked at the perfect, whole harp.
+
+He played.
+
+He played a scale. It was flawless. It was bright. It was perfect.
+
+And it was utterly hollow.
+
+The courtiers began to talk again. The jesters juggled. The magic was gone. The music was just sound, a layer of varnish over the world. It did not touch the heart; it merely distracted the ear.
+
+The King sat back, relieved. The memory of his son faded. The guilt retreated. The noise washed over him, safe and numbing.
+
+Seren stopped. He took a small knife from his belt.
+
+*Snap.*
+
+He cut the silver string. It coiled away with a dying twang.
+
+The silence rushed back into the room, sudden and violent.
+
+"Get out," the King whispered, his face pale.
+
+Seren bowed. "The ear may be filled," he said softly, "but the soul must be emptied."
+
+He left the court. He was never seen again. But they say that King Alaric never slept well after that. He would wake in the night, straining his ears, not for a sound, but for the echo of the string that wasn't there.
+
+*The perfect song has no door,*
+*The wall is smooth from roof to floor.*
+*But leave a space for the wind to blow,*
+*And the heart will hear what the silence knows.*
+*—Attributed to Seren, the Silent Harper.*
