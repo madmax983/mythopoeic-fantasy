@@ -1891,3 +1891,141 @@ He left the court. He was never seen again. But they say that King Alaric never 
 *But leave a space for the wind to blow,*
 *And the heart will hear what the silence knows.*
 *—Attributed to Seren, the Silent Harper.*
+
+---
+
+# The Drawer of the Dry Well
+
+*A narrative reconstructed from the clay tablets of Isen, uncovered during the excavation of the Lower Terraces.*
+
+The City of Isen was built on the memory of water. In the First Days, the Great Spring had flowed from the center of the plaza, a fountain of pure, cold silver that gave life to the hanging gardens and the orchards. But the spring had dried up a thousand years before. The gardens were dust, and the orchards were petrified wood.
+
+The people of Isen survived by collecting dew in broad canvas sheets and trading their woven rugs for cistern-water brought by caravans. They had adapted to the dryness. They were a practical, thirsty people.
+
+Yet, in the center of the plaza, the Old Well remained.
+
+Mira was the Drawer. She was not a priestess. She was a woman whose hands were scarred from the loom, whose shoulders stooped from a life of carrying burdens. Every morning, as the sun broke over the eastern ridge and the first dew was being wrung from the canvas, she walked to the Old Well.
+
+She carried a bucket of cured leather, bound with iron hoops. The bucket was heavy, even empty. She tied it to the frayed rope that hung from the windlass.
+
+She lowered the bucket into the darkness. She listened as it hit the bottom with a dry, hollow thud.
+
+Then, she began to turn the crank.
+
+It was hard work. The gears were rusted, the rope thick and stubborn. Mira would strain against the wood, her breath coming in ragged gasps, her muscles burning. She would pull the bucket up, foot by foot, out of the dry depths.
+
+When it reached the top, she would unhook it. She would carry it to the edge of the plaza, and she would tip it over.
+
+A cloud of grey dust would fall to the paving stones.
+
+"Why do you labor for nothing?" asked the new Overseer. He was a man of ledgers and rations, who counted every drop of dew and every grain of sand. He wore a tunic of bleached linen, unstained by sweat. "You draw dust. The well is dead."
+
+"The well is dry," Mira corrected, her voice quiet. "But it is not dead."
+
+"It yields no water," the Overseer said reasonably. "Your effort is wasted. You could be wringing the dew cloths. You could be weaving. You expend energy on a ghost."
+
+"If I do not draw from the well," Mira said, wiping the dust from her brow, "the well becomes a hole. As long as the bucket descends, it is a well."
+
+The Overseer shook his head. "This is sentiment. We cannot drink sentiment."
+
+He gave an order. The carpenters came with thick planks of heartwood. The masons came with mortar. They laid the planks over the mouth of the well. They sealed the edges with stone and cement.
+
+"There," the Overseer said, dusting his hands. "The plaza is flat. The hazard is removed. Now we can build a larger market pavilion where the hole used to be."
+
+Mira watched them seal the stone. She did not fight them. She was a weaver, not a warrior. She took her leather bucket back to her small, low-roofed house.
+
+The market pavilion was built. Trade increased. The caravans brought more water, for the weavers, freed from their superstitions, worked longer hours. Isen grew prosperous.
+
+But a strange languor settled over the city.
+
+It began slowly. The people stopped looking at the sky. They no longer spoke of the Great Spring. They no longer told the stories of the First Days, when water leaped from the stone.
+
+The thirst did not leave them, but the *ache* of the thirst did.
+
+They drank their rationed water without tasting it. They wove their rugs without caring for the patterns. A dull contentment, the color of bleached linen, covered their minds. They did not weep. They did not sing. They simply existed, comfortable and barren.
+
+"See how peaceful we are," the Overseer remarked, surveying the quiet, busy market. "No one wastes time. No one yearns for the impossible."
+
+Mira sat at her loom. She felt the heavy contentment pressing down on her, trying to smooth out the rough edges of her soul. She tried to remember the sound of the Great Spring, but the memory was slipping away, buried under the practical noise of commerce.
+
+She looked at her dry, cracked hands. She realized that the ache in her hands from turning the heavy, rusted crank had been a prayer. It was the physical shape of their yearning. By removing the labor, the Overseer had removed the longing. And without the longing, the water was just a fluid, not a gift.
+
+She went to her corner and picked up the leather bucket. It was stiff and dry.
+
+She walked to the plaza.
+
+The market was busy. People moved through the stalls, their faces placid, their eyes flat.
+
+Mira walked to the center, where the wooden planks were sealed into the stone. She set her bucket down.
+
+"What are you doing, old woman?" a merchant asked, not with malice, but with mild curiosity.
+
+Mira knelt. The planks were thick, meant to bear the weight of carts. The mortar was set hard.
+
+She had no crowbar. She had no pick.
+
+She placed her hands on the edge of the wood, where it met the stone.
+
+She began to pull.
+
+"Stop," the Overseer said, pushing through the crowd. "You will hurt yourself. The well is closed. It is for the best."
+
+Mira did not stop. She dug her fingers into the tiny crack between the wood and the mortar. She pulled with all the strength of a lifetime of carrying burdens.
+
+Her fingernails split. The blood ran down the pale wood.
+
+"It is sealed," the Overseer said, his voice rising in panic. He did not fear the well; he feared the disruption of his peaceful city. "You cannot move it. It is inefficient!"
+
+"Efficiency is the death of the thirst," Mira gasped.
+
+She pulled harder. The muscles in her arms screamed. The skin on her fingertips tore away. She was not trying to open the well to find water. She was trying to open it to find the *need* for water.
+
+The pain was terrible. It burned through the dull contentment that had clouded her mind. The pain was sharp, and jagged, and true.
+
+She let out a cry—a hoarse, ugly sound of sheer effort and agony.
+
+The people in the market stopped. The sound shocked them. It was a sound of suffering, and they had forgotten how to suffer.
+
+*Crack.*
+
+The mortar splintered. The wood groaned.
+
+Mira drove her bleeding hands deeper into the gap. She threw her entire weight backward. Her shoulder dislocated with a sickening pop, but the leverage was enough.
+
+The planks tore free from the stone, flipping over with a heavy crash.
+
+The mouth of the Old Well lay open, a dark, gaping hole in the bright, busy plaza.
+
+The stench of stagnant, dry earth rose from the depths. It was not the sweet smell of spring water. It was the smell of ancient dust.
+
+But from deep, deep below, a sound echoed up the shaft.
+
+It was not the rush of a river. It was a slow, agonizing *drip*.
+
+*Plink.*
+
+A single drop of moisture, squeezed from the heart of the stone, falling into the dry dust.
+
+The sound resonated in the open shaft, amplified by the hollowness.
+
+*Plink.*
+
+The people in the plaza stood frozen. The sound hit their ears, and suddenly, the dull contentment shattered. They remembered the Great Spring. They remembered the thirst. The ache returned to their throats, a burning, desperate longing for the water that was not there.
+
+They fell to their knees. Some wept. Some groaned. It was not a happy sound, but it was the sound of a living people.
+
+Mira lay beside the open well, her hands ruined, her shoulder twisted, her breath coming in shallow gasps.
+
+The Overseer stared at her, horrified. "You have brought the pain back," he whispered. "We were at peace."
+
+"You were asleep," Mira said, her voice barely a breath. "The well must remain open. The throat must remain dry. Until the water comes."
+
+They say Mira never drew from the well again. Her hands were too broken to hold the rope. But others took up the bucket. Every morning, they lowered it into the dark, and every morning, they drew up a bucket of dust. It was hard, painful, useless work.
+
+But they say that as long as the bucket descends, the single drop continues to fall in the dark, keeping the memory of the water alive in the stone. And the people of Isen are thirsty, and they are weary, but they are awake.
+
+*The sealed stone keeps the sorrow out,*
+*But kills the hope and feeds the doubt.*
+*Better the dry and aching throat,*
+*Than the stagnant peace of the shallow moat.*
+*—A weaver’s song, sung at the looms of Isen.*
