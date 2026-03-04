@@ -2029,3 +2029,109 @@ But they say that as long as the bucket descends, the single drop continues to f
 *Better the dry and aching throat,*
 *Than the stagnant peace of the shallow moat.*
 *—A weaver’s song, sung at the looms of Isen.*
+
+---
+
+# The Reader of the Rooted Names
+
+*A translated fragment from the dust-swept archives of Tarnis, City of the Eastern Ridge.*
+
+The City of Tarnis was built on a precipice facing the deep, empty vastness of the East. From that emptiness came the East Wind—not a breeze, but a scouring force, a relentless breath that sought to unmake the world, stripping soil from rock and color from the sky. To live in Tarnis was to live in defiance of the wind.
+
+But walls of stone were not enough. Stone forgets. Stone can be worn down to sand.
+
+Branwen was the Reader. She was a woman of no particular lineage, her face lined like the dry earth, her hands stained with the ink of the archives. She lived in the high tower above the Eastward Gate, surrounded by heavy, iron-bound ledgers.
+
+Every evening, as the sun sank behind the city and the sky turned the color of bruised iron, Branwen would step onto the high balcony. She would open the Ledger of the Deep Roots. And she would read.
+
+She read the names of the dead.
+
+"Kaelen the mason. Elara the weaver. Toris who died in the winter. Maeva who birthed twins."
+
+She did not read their deeds, only their names. She read them slowly, letting the syllables fall from her tongue like heavy stones. The names sank into the air, into the masonry, into the very bones of Tarnis. They were the anchors. They gave the city its weight. A place that remembers its dead cannot easily be blown away, for the roots of history are heavier than the stone itself.
+
+"Why do you recite this litany of ghosts?" asked the new Governor. He was a man of bright ideas and velvet coats, sent from the capital where the winds were gentle. He believed in tomorrow, not yesterday.
+
+"I give the city its ballast," Branwen answered, not looking up from her book.
+
+The Governor sighed, a reasonable, weary sound. "It is a morbid practice. The people hear you from the streets, and it makes them melancholy. They look backward. They grieve. How can we build a golden future when every evening we are reminded of the dust?"
+
+"Dust is what holds the stones together," Branwen said. "If you forget the names, the city becomes light. It becomes a leaf."
+
+"Nonsense," the Governor smiled. "Tarnis is made of granite. Granite does not blow away. I am ordering the balcony sealed. We will build a new clock tower there instead, to count the hours of our progress. The reading stops tonight."
+
+Branwen did not argue. Arguments were like wind; they had no anchor. But she knew the ledger. She knew the names.
+
+The balcony was bricked up. The ledgers were locked in a damp cellar. The city of Tarnis enjoyed a season of unburdened progress. The people did not hear the melancholy litany at dusk. They felt lighter. They walked with a bounce in their step. The Governor commissioned statues of himself and planned new, airy pavilions.
+
+But the East Wind was patient.
+
+It noticed the change. It felt the city growing light. The heavy, sorrowful gravity of memory was gone, replaced by the thin, fleeting weight of ambition.
+
+On the eve of the winter solstice, the East Wind howled.
+
+It did not come as a storm, but as a solid wall of pressure. It struck Tarnis with a sound like a cracking whip.
+
+The people in the streets did not just fall; they began to slide. The new, airy pavilions shuddered and tore from their moorings, floating away like dandelion seeds into the dark vastness. The statues of the Governor trembled, then tipped, rolling toward the precipice.
+
+"The stone is failing!" the masons cried, clinging to the cobblestones.
+
+"The stone is fine," an old man shouted over the gale. "It is the city that has lost its weight!"
+
+The Governor clung to the pillars of his palace, watching in horror as the roof tiles stripped away like scales from a dead fish. The granite felt loose, porous, as if it were turning to pumice.
+
+In her small room beneath the tower, Branwen felt the vibration. The city was unmooring.
+
+She had no ledger. The cellar was buried under fallen masonry.
+
+She crawled to the narrow slit of a window facing the East. The wind screamed through it, pulling at her hair, her breath, her life.
+
+She stood. She was not exceptional. She was old, and her knees ached. But she was available.
+
+She placed her hands on the shaking stone of the window frame. She closed her eyes.
+
+She opened her mouth.
+
+The wind tried to force the sound back down her throat. It fought her, a physical pressure that tore at her vocal cords.
+
+But Branwen remembered. She had not just read the names; she had carried them.
+
+"Kaelen!" she cried out.
+
+The sound was small, but it was dense. The syllable hit the wind like a lead weight. The stone beneath her hands settled, just a fraction.
+
+"Elara! Toris! Maeva!"
+
+She screamed the names into the void. She did not use the delicate voice of a scholar; she used the raw, bleeding voice of survival. The wind tore at her throat, shredding the delicate tissues. She tasted blood.
+
+But she kept reading from the ledger of her mind. She recited the bakers, the soldiers, the children who had lived only a day. She recited the ugly names and the beautiful ones.
+
+With every name she spoke, she paid the toll of memory. The cost was exacted in her breath, in the tearing of her throat.
+
+Down in the city, the Governor felt the shaking stop beneath his feet. He saw the cobblestones re-root themselves in the earth. The pavilions that had not blown away settled back with a heavy, final thud. The city was regaining its gravity. It was becoming heavy again.
+
+Branwen shouted the last name she knew. Her voice cracked, broke, and dissolved into a ragged, bloody rasp.
+
+The East Wind shrieked in frustration, breaking against the sudden, immense weight of Tarnis’s remembered dead. Then, with a hollow moan, it divided, blowing around the city, unable to move the mountain of history that Branwen had piled before it.
+
+When the morning came, the city was battered, but it stood.
+
+The Governor went to the tower. He found Branwen sitting by the window. Her hands were still pressed to the stone.
+
+"You saved us," he whispered, his bright ideas shattered by the reality of the wind. "You anchored the city."
+
+Branwen looked at him. She tried to speak, to tell him that the ledger must be recovered, that the names must be honored.
+
+But only a dry hiss came from her throat. She had spent her voice entirely. The silence she had feared had claimed her, but it was a silence bought with truth.
+
+She pointed to her throat, and then she pointed to the stone.
+
+The Governor understood. He ordered the ledgers dug from the cellar. He ordered the balcony reopened.
+
+They say Branwen lived many years after the storm. She never spoke again. But every evening, she would stand on the balcony while a new, young Reader spoke the names. And the people of Tarnis listened. They did not feel melancholy. They felt heavy. They felt real. They knew that the city stood not because it was made of granite, but because its foundations were built on the unbreakable syllables of the dead.
+
+*Let the ambitious build their towers high,*
+*And seek the thin, light favor of the sky.*
+*But those who weather the scouring gale,*
+*Must anchor their stones in the weeping tale.*
+*—Etched above the Eastward Gate of Tarnis.*
