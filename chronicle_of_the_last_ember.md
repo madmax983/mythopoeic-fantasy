@@ -2029,3 +2029,100 @@ But they say that as long as the bucket descends, the single drop continues to f
 *Better the dry and aching throat,*
 *Than the stagnant peace of the shallow moat.*
 *—A weaver’s song, sung at the looms of Isen.*
+
+---
+
+# The Lantern of the Sinking Isle
+
+*A tale told too often to be polished, recorded from the hearth-wives of the Coastal Reaches.*
+
+The Isle of Rhu was not conquered by armies, but by the creeping tide of the Grey Water. The sea did not roar or crash against the cliffs; it simply rose, a hand's breadth each year, silent and cold. It tasted of nothing, and it is said that those who drank deep of it forgot the faces of their mothers.
+
+Bran was a net-mender. He was an old man with a heavy limp, his left leg a peg carved from the pale wood of the Rhu trees that gave the island its name. His hands were thick with calluses, and his face was mapped with the salt of a thousand winds. He was not a priest, nor a king, but he bore the duty of the Lantern.
+
+The Lantern of the North Watch was an iron cage atop a spire of black rock. It burned a specific kind of oil, pressed from the bitter-nuts of the Rhu trees.
+
+"The light holds the water back," the old stories said.
+
+But the Rhu trees were dying. The salt of the Grey Water had seeped into the soil, and their roots were rotting. The harvest of bitter-nuts grew smaller each season.
+
+The leader of the village, a young man named Vane, was a man of deep compassion and sharp logic. He saw his people shivering. He saw the water rising, swallowing the lower pastures, turning the grazing sheep into ghosts in the mist.
+
+"The long defeat is upon us," Vane said, standing in the town square. "The island is sinking. We cannot fight the sea with a single flame. But we can build a ship. A great ark to carry our people to the mainland. We must use the last of the Rhu trees for timber, not for oil."
+
+It was a good intention. Vane loved his people, and he could not bear to watch them drown while they tended a dying fire.
+
+But Bran remembered the rhyme his grandmother had sung as she spun wool.
+
+*The wood is the boat, the oil is the shore,*
+*If the light goes out, the world is no more.*
+
+"The Lantern must burn," Bran said, leaning heavily on his peg leg. "If the light dies, the Grey Water will not just take the island. It will take the mainland too. The light is the boundary. It tells the sea where the earth begins."
+
+Vane smiled, a sad, reasonable smile. "Old man, the light is but a candle against the ocean. It is a beautiful tradition, but it is an illusion. We must be practical. We must save the children, even if we lose the land."
+
+The village agreed, for it is easy to agree with a plan that promises safety. They took their axes to the last groves. They did not press the nuts for oil; they shaped the pale wood into a beautiful, sturdy hull.
+
+Bran had only a small jar of oil left. He climbed the black rock every night, his bad leg aching with the damp cold. He poured a thimbleful into the iron cage. The light was weak, but it was there, a stubborn yellow eye glaring at the rising tide.
+
+The water crept higher. It swallowed the docks. It lapped at the thresholds of the empty houses.
+
+"Come with us, Bran," Vane pleaded as the great ship was provisioned. "The Lantern is almost out. The island is lost. Do not die for a superstition."
+
+Bran looked at his jar. It was empty. He looked at the great, beautiful ship, loaded with the villagers. They were safe. They were warm. They had done the logical thing.
+
+"The light is the boundary," Bran whispered. "Obedience is not for when you understand. It is for when you do not."
+
+He turned his back on the ship.
+
+Vane wept for the old man's madness, but he gave the order to cast off.
+
+As the ship launched into the dark water, the Lantern sputtered and died.
+
+The island sank, yes. But the Grey Water was not just water. Without the light to give it a boundary, the sea lost its shape. A thick, erasing fog rose from the surface, swallowing the sky.
+
+The people on the ship cheered at first, glad to be under way. But soon, they grew quiet. The lodestone in the navigator's hand spun aimlessly. The stars were hidden. The planks of the Rhu tree, unburned and unsanctified, began to weep a sap that smelled of old dust.
+
+"Where are we sailing?" Vane asked, looking out into the grey nothingness.
+
+"I... I do not know," the helmsman said, his hands trembling on the tiller. "I cannot remember the shape of the mainland. I cannot remember the word for East."
+
+The compassion of Vane had saved their bodies, but the erasure had caught their minds. They were adrift in a sea that had no edges, becoming ghosts in a ship of pale wood.
+
+Back on the spire of black rock, the water was at Bran's waist. The cold was absolute. He had no oil. He had no wood, save for the peg of his own leg.
+
+"Courage arrives late," Bran muttered to the dark.
+
+He did not have a grand revelation. He only knew that the story had to continue, and a story cannot be told in the dark.
+
+He took his flint and striking-steel. He unbuckled his leather harness. He wedged his wooden leg into the iron grate of the Lantern. He took his heavy woolen coat, soaked in years of fish oil and sweat, and wrapped it around the wood.
+
+He struck the flint.
+
+The spark caught the wool. It smoldered, then flared.
+
+Bran climbed into the iron cage.
+
+He became the fuel.
+
+It was an agonizing, terrible heat. It was not a triumph; it was a desperate, ugly burning. He did not sing a song of glory. He screamed, a raw, broken sound that was swallowed by the sea.
+
+But the light flared. A bright, harsh, true light of burning flesh and ancient wood.
+
+The beam cut through the fog like a golden blade. It struck the hull of the lost ship.
+
+Vane saw the light. It was painful to look at, blinding in its intensity. But as the light touched him, the fog in his mind shattered. He remembered the mainland. He remembered the high cliffs of the east. He remembered the cost of the world.
+
+"Steer by the fire!" Vane wept, falling to his knees, realizing the terrible weight of his good intentions. "Steer away from the center!"
+
+The ship found its way out of the erasing mist, guided by the brief, agonizing flare of Bran's sacrifice.
+
+They reached the mainland, but they arrived as exiles, bearing a wound that would never fully heal. They carried the weight of the man who had burned so they could remember how to sail.
+
+Bran died in the iron cage, the last ember of Rhu. The island is gone beneath the silent tide. But they say that on the darkest nights, sailors lost in the deep waters can sometimes see a faint, flickering light. It is not the light of oil or magic, but the light of a stubborn, unreasonable loyalty, holding the edge of the world in place.
+
+*We built a ship to cheat the tide,*
+*We left the ancient flame to die.*
+*But found the ocean has no shore,*
+*Without the burning of the core.*
+*—A song of the Exiles of Rhu, sung when the fog rolls in.*
