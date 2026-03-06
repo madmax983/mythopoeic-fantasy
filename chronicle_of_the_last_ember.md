@@ -2029,3 +2029,113 @@ But they say that as long as the bucket descends, the single drop continues to f
 *Better the dry and aching throat,*
 *Than the stagnant peace of the shallow moat.*
 *—A weaver’s song, sung at the looms of Isen.*
+
+---
+
+# The Watcher of the Long Night
+
+*Transcribed from the margins of a star-chart found in the Observatory of High Reach.*
+
+The Tower of High Reach was built before the concept of counting years. It stood on a peak that pierced the cloud layer, a solitary needle of black stone holding a great brass lens aimed at the dark between the stars. It was said that the lens was not for looking out, but for catching the light of the First Sun, a sun that had not yet been born.
+
+Elara was the Watcher. She was not a scholar. Her hands were rough from hauling the winch that turned the great dome, and her eyes were constantly red from the biting wind that leaked through the masonry. Her duty was singular: to keep the lens clean and polished, and to watch the empty quadrant of the sky every night, from dusk until the grey dawn.
+
+"Why do you stare at nothing?" asked the new Astronomer, a young man sent from the plains below, full of charts and precise measurements. He wore spectacles of fine glass and was irritated by the dust Elara inevitably tracked into the observatory.
+
+"I am watching for the Morning," Elara said, rubbing a soft cloth against the brass rim of the lens.
+
+"Morning comes from the east," the Astronomer laughed, gesturing toward the horizon. "It is a predictable rotation. We can calculate it to the second. What you are looking at is the Deep Void. There is no star there."
+
+"Not yet," Elara replied, not breaking her rhythm.
+
+"It is a waste of a perfect instrument," the Astronomer declared. "With this lens, we could chart the wandering paths of the known planets. We could predict the tides with absolute certainty. We could be useful to the people below."
+
+"The people below need the Morning more than they need the tides," Elara said softly.
+
+The Astronomer sighed. He was a practical man. He did not believe in First Suns or waiting for things that had no statistical probability of occurring. He waited until Elara fell asleep during the day, exhausted by her long vigil. Then, he unbolted the heavy gears of the dome.
+
+He swung the great lens away from the Deep Void. He pointed it toward the bright, busy clusters of the established constellations. He began to draw his charts, mapping the predictable paths of the light that already existed.
+
+When Elara woke and saw the lens moved, she did not shout. She simply walked to the winch.
+
+"Do not touch it!" the Astronomer ordered. "I am making a discovery. I have found a new moon orbiting the gas giant in the fifth house."
+
+"A moon reflects," Elara said, her hands gripping the cold iron of the winch. "It does not burn. Put the lens back."
+
+"You are an ignorant woman clinging to a fairy tale," he snapped. "There is nothing in the Void."
+
+"If we do not look for it, how will it know where to shine?" Elara asked.
+
+She began to turn the winch. The Astronomer tried to stop her, but he was a man of the plains, soft and unaccustomed to physical labor. Elara had the strength of the mountain in her arms. She forced the gears back, the heavy groan of the metal echoing in the small room, until the lens was once again locked onto the blackness of the Deep Void.
+
+"You are a fool," the Astronomer spat, packing his charts. "I will report you to the Guild. They will send someone to remove you."
+
+"They may send who they wish," Elara said, sitting back down in her hard wooden chair, her eyes fixed on the empty glass. "But tonight, I am here."
+
+The Astronomer left, taking his precise measurements with him.
+
+Years passed. Elara grew old. The wind from the cracks in the masonry deepened the lines in her face. The cold settled permanently into her joints. She was often hungry, for the supplies from the plains grew sparse as the people below forgot about the tower and its silent watcher.
+
+She watched the dark. Sometimes, the silence of the Void pressed against her mind, whispering that the Astronomer had been right. It whispered that she had wasted her life looking at an empty patch of sky while the real world passed her by. It whispered that there was no Morning, only an endless, predictable night.
+
+The doubt was heavy, heavier than the winch. But she bore it. She polished the lens. She kept her eyes open.
+
+One winter, the night did not end.
+
+The sun in the east—the predictable, calculated sun—did not rise. A thick, grey ash fell from the sky, blotting out the stars, plunging the world into absolute darkness. The air grew bitterly cold. From the plains below, Elara could hear the faint, desperate ringing of alarm bells, a sound of sheer terror.
+
+The Long Night had come.
+
+In the observatory, the darkness was absolute. Elara could not even see her own hands. The cold was a physical weight, pressing the breath from her lungs.
+
+She felt her way to the lens. She took her cloth and began to polish it in the dark.
+
+"It is useless," the wind howled through the cracks. "The fire is gone."
+
+Elara did not answer. She polished the brass.
+
+Days turned into weeks. She had no food left. She was so cold she could no longer shiver. She sat in her chair, her hands resting on the edge of the great lens, her eyes fixed on the patch of darkness that was indistinguishable from the rest of the dark.
+
+She was dying. She knew it.
+
+"I am available," she whispered to the empty room. "I am here."
+
+Her vision began to blur, the final darkness closing in around the edges.
+
+Then, she saw it.
+
+It was not a flash. It was not a sudden explosion of light.
+
+It was a prick. A tiny, impossible prick of warmth in the very center of the Deep Void.
+
+It was so small, so faint, that if the lens had not been perfectly polished, perfectly aligned, it would not have been caught. If she had not spent a lifetime training her eyes to see nothing, she would not have seen it.
+
+The light hit the great brass lens.
+
+The lens did not magnify it. The light was too new, too shy for that. Instead, the lens caught it, held it, and gently guided it down the long tube, down to where Elara sat.
+
+A single, golden beam, no thicker than a thread, struck her cheek.
+
+It was not just light. It was heat. It was the promise of a new beginning. It was the Morning.
+
+Elara smiled. The cold in her bones began to recede.
+
+The single thread of light grew. It filled the lens. It poured out of the observatory window, a brilliant, piercing beam that cut through the falling ash like a golden sword. It struck the clouds above the plains, igniting them with a fiery dawn that had nothing to do with the east.
+
+The bells in the plains below stopped ringing. A great shout went up, a sound of awe and weeping.
+
+The light washed over Elara. It was beautiful, terrible, and completely overwhelming. It was not a light meant for human eyes, but she did not look away. She had waited her whole life for it.
+
+When the new sun fully cleared the horizon of the Void, the world was remade. The ash melted. The cold broke.
+
+They found Elara days later. The observatory was warm, the stone practically humming with the residual energy of the First Sun. She was sitting in her chair, her hands resting on the lens.
+
+She was dead. Her eyes were open, and they were blind, burned away by the glory she had witnessed. But there was a smile on her face that no sculptor could ever capture.
+
+They buried her at the base of the tower. They say the astronomers still use the great lens to chart the new stars, but they never move it from its position. It remains locked on the center of the sky, a silent witness to the fact that sometimes, the only way to find the light is to stare unflinchingly into the dark.
+
+*The measured sun will rise and fall,*
+*But the waiting eye must see it all.*
+*For the truest dawn is born of night,*
+*And the blindest watcher holds the light.*
+*—Etched into the brass rim of the Great Lens.*
