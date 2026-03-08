@@ -2029,3 +2029,111 @@ But they say that as long as the bucket descends, the single drop continues to f
 *Better the dry and aching throat,*
 *Than the stagnant peace of the shallow moat.*
 *—A weaver’s song, sung at the looms of Isen.*
+
+---
+
+# The Shepherd of the Silent Flock
+
+*A pastoral fragment recovered from the High Moors of Oakhaven, dating to the Age of the Grey Wind.*
+
+High on the moors, the wind blew constantly. There were no sheep on the High Moors, for the grass there was tough and grey, and the air was too thin for grazing.
+
+But Bran was a shepherd. He was a young boy, perhaps fourteen, with a limp from a childhood fever. He did not have a flock of wool and bleating. He had a flock of stones.
+
+Scattered across the moor were fifty-two boulders, rough and rounded, sunk deep into the peat. They were not arranged in a circle, or a line. They seemed scattered at random, like seeds dropped by a careless giant.
+
+Every morning, Bran would take his crook, carved from mountain ash, and walk the moor. He would stop at each stone. He would rest his hand upon it. He would speak to it. He would brush away the lichen that tried to eat into the granite. He would sing to them, old, toneless songs that his grandfather had taught him, songs that had no words, only the rhythm of walking and breathing.
+
+He gave them names. *Heavy-back. Sharp-edge. Deep-root.* Names that shaped their presence on the hill.
+
+"Why do you tend the rocks, boy?" asked the new Lord of the Valley, who had ridden up to hunt the silver-fox. He was a man of action, of gleaming armor and restless energy. "They do not breed. They do not yield wool. They are dead."
+
+"They are not dead," Bran said, his voice quiet against the wind. "They are sleeping."
+
+The Lord laughed, a sound like coins spilling on a table. "You are wasting your youth. Come down to the valley. I will give you a real flock. You can earn silver. You can eat meat instead of gruel. You can have a life of use."
+
+"If I leave," Bran said, leaning on his ash crook, "who will watch the flock?"
+
+"They are stones! They will not wander off!"
+
+"They might," Bran said simply.
+
+The Lord shook his head and rode away. He was a good man, but he understood only what he could measure. He saw value in wool, in meat, in silver. He saw no value in a boy talking to boulders.
+
+The years passed. Bran grew old. His limp became a drag. His hands grew gnarled like the ash roots he leaned upon. But still he walked the moor, every day, touching the fifty-two stones. He expected no reward. The stones did not thank him. They gave him no warmth in the winter. It was a long obedience in the same direction.
+
+Then, rumors of the Grey Wind came.
+
+It was a creeping unmaking from the North. It was not a storm that broke trees; it was a silence that made trees forget they were wood. Where it blew, things lost their names and faded into a featureless, indifferent dust.
+
+The Lord of the Valley, now an old man himself, rode up to the moor with his masons and ox-carts. His face was pale, his armor dull.
+
+"We must build a wall," the Lord declared. "A great wall across the gorge to keep the Wind out. We need stone. These boulders are perfect. They are doing nothing here. We will take them."
+
+Bran stood before the stone he called *Deep-root*. "You cannot," he said. "They are my flock."
+
+"Do not be a fool," the Lord snapped, fear edging his voice. "This is not a game anymore. The valley is in danger. We need the stone to save the people. It is a necessary sacrifice."
+
+"You do not understand sacrifice," Bran said softly. "You think it is a trade. You give a stone, you buy a wall. But the stones do not work like that. They hold the moor because they are here, not because they are useful."
+
+"I have no time for peasant mysticism," the Lord growled. "Take the stones!"
+
+The masons came forward with their iron pry bars. They wedged them under *Heavy-back*. They heaved.
+
+The stone groaned, but it did not move.
+
+"Harder!" the Lord commanded.
+
+They pushed. The iron bars bent. The oxen strained in their yokes, their hooves slipping in the peat. But the stone seemed to have grown roots of pure iron deep into the earth. The more they treated it as a material, a tool to be used, the heavier it became. It rejected the transaction.
+
+"It is unnatural," the head mason whispered, wiping his brow. "It is as if the earth is holding onto it."
+
+Bran rested his hand on the rough granite. "It is not a brick," he said. "It is *Heavy-back*."
+
+The Lord was furious, but he had no choice. The Wind was coming. They abandoned the stones and went to quarry rock from the cliffs, a desperate, hasty effort that yielded brittle, frightened stone torn violently from its bed.
+
+They built their wall across the gorge. It was tall and thick, a marvel of efficiency and panic.
+
+Then the Grey Wind arrived.
+
+It hit the wall in the gorge. The wall, built of fear and utility, had no memory. It had no name. It did not know why it was there, only that it had been forced into shape. The Grey Wind whispered to the mortar, "Why hold?" And the mortar crumbled. It whispered to the stones, "You were stolen." And the stones cracked. The great wall dissolved into grey sand in moments, surrendering to the void.
+
+The Wind swept up the gorge, toward the moor. It rolled like a tide of absence, stripping the color from the heather, turning the sky to a bruised purple.
+
+It hit the first stone of the moor. *Deep-root.*
+
+The wind howled, trying to unravel the granite. It tried to tell the stone that it was just dust, that it had no shape, no purpose, no meaning.
+
+But the stone remembered Bran's hand. It remembered the name it had been given. It remembered the toneless songs sung over it for sixty years. It was not just a piece of earth; it was a sheep of the flock. And a flock belongs to the shepherd.
+
+The stone held.
+
+The Grey Wind swirled around it, frustrated. It rushed to the next stone. *Heavy-back.* But *Heavy-back* also held.
+
+Bran stood in the center of the moor. He raised his ash crook. He did not run. He did not fight. He began to sing. His voice was cracked and thin, a reedy sound that was nearly swallowed by the roaring of the wind.
+
+He sang the names.
+
+The stones answered. A deep, subsonic hum began to vibrate through the earth, connecting the fifty-two boulders in a web of heavy, undeniable reality.
+
+The Grey Wind hit the web and broke. It could not unravel the weight of a lifetime of useless, non-transactional love. Bran had given his youth, his strength, his entire life to something that could give him nothing in return. The wind, which fed on the transactional, the useful, the easily discarded, found no purchase on a love that demanded no wages.
+
+The wind shattered against the stillness of the stones, breaking into harmless breezes that scattered down into the valley, losing their erasing power.
+
+The Lord of the Valley, who had fled the gorge, watched from the ridge. He saw the old shepherd, leaning on his crook, exhausted, surrounded by a flock of stones that seemed to glow with a faint, stubborn light.
+
+When the Lord reached him, Bran had fallen to his knees. The effort had cost him the last of his breath. His lungs were cold.
+
+"You saved us," the Lord whispered, dismounting and kneeling in the damp peat. "You saved the valley. How?"
+
+Bran looked at the Lord. His eyes were fading, but they were peaceful. He reached out and patted the cold side of *Deep-root*.
+
+"I did not save the valley," Bran breathed. "I just... stayed with my sheep."
+
+He died there on the moor. They say the Lord did not return to his manor immediately. He stayed on the moor. He took up the ash crook. And though he felt foolish, and though his knees ached in the damp, he walked to the first stone, rested his hand upon it, and spoke its name.
+
+*The wool will rot, the silver rust,*
+*The swift and useful turn to dust.*
+*But heavy stone that knows its name,*
+*Will break the wind and quench the flame.*
+*—Fragment of a song still sung by the shepherds of the High Moors.*
