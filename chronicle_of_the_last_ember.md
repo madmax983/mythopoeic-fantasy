@@ -2029,3 +2029,66 @@ But they say that as long as the bucket descends, the single drop continues to f
 *Better the dry and aching throat,*
 *Than the stagnant peace of the shallow moat.*
 *—A weaver’s song, sung at the looms of Isen.*
+
+---
+
+## The Watcher of the Pale Gate
+
+*A fragment found in the bindings of the Book of Seasons, believed to be the account of old Kaelen, the last watcher of the Pale Gate.*
+
+Kaelen was not a warrior. His knees ached when the frost settled in the valley, and his hands trembled when he held the heavy iron key. He was a weaver by trade, chosen by the village elders simply because his loom sat closest to the path that led up to the roots of Mount Aethelgard—a peak whose true name predated the memory of men.
+
+For three hundred years, the village of Oakhaven had kept the Pale Gate locked. The stories said that behind it lay a creature of the old dark, a servant of the Nameless King. But the stories had grown thin with time, worn down like river stones.
+
+When the blight came to the valley, the crops withered. The rivers ran sluggish and brown. Children grew hollow-eyed, and the elders spoke in hushed, frightened tones.
+
+It was then that Kaelen first heard the voice from behind the Gate.
+
+He had climbed the path to sweep the leaves from the stone threshold, as he did every seventh day. The voice did not roar. It did not threaten. It was a voice like dry leaves and old paper, tired and remarkably gentle.
+
+"You are hungry, little weaver," the voice said. "I can smell the dust in your breath."
+
+Kaelen stopped sweeping, leaning heavily on his broom. "I am not permitted to speak with the stone," he recited, repeating the rule he had learned as a boy, a rule he obeyed without fully understanding.
+
+"I am not stone," the voice replied. "I am a memory of the earth. And I am weary of this dark. If you turn the key, just a fraction, I can breathe life back into your soil. I can make the wheat grow tall. I do not ask to be freed. I only ask to stretch my hands into the light."
+
+It was a perfectly reasonable request. It was an efficient solution to a terrible problem. Kaelen thought of his neighbor’s daughter, who had not cried in three days because she had no strength left. He thought of the empty grain silos.
+
+What harm could a fraction of a turn do? It was for the good of the village. It was not a selfish act.
+
+Kaelen reached for the heavy iron key at his belt. His trembling fingers traced its cold, rusted teeth.
+
+*He who seeks to heal the rot,*
+*Must ask the price that it is bought.*
+
+The remembered saying, taught to him by his grandfather, drifted into his mind. Magic, the old ones knew, was never a simple exchange. Power always asks a price, and the price is usually borne by those who cannot refuse it.
+
+"What is the cost?" Kaelen asked, his voice cracking.
+
+The voice behind the Gate paused. "Only a small thing. A sliver of the children's dreams. They will forget the names of the stars. They will no longer hear the music in the wind. A small price to save their fragile bodies."
+
+It was a terrifyingly practical bargain. The corruption of good intentions is a quiet path, paved with reasonable compromises. To save the children from starvation, he would have to sacrifice their capacity for wonder, unmaking their souls without their consent.
+
+Kaelen looked down at the key. He remembered the beauty of the dawn over the valley, the way the light caught the morning dew—a beauty that felt like a sudden, fierce truth, a shield against the voice's heavy pragmatism.
+
+Language mattered. The names of the stars were not just words; they were the ties that bound the people to the sky.
+
+Kaelen withdrew his hand from the key. He stepped back from the Gate.
+
+"No," Kaelen said softly.
+
+"Your people will starve," the voice reasoned, sounding genuinely sorrowful. "You will watch them fade."
+
+"We will fade," Kaelen agreed, the weight of the long defeat pressing down on his old shoulders. "But we will fade knowing who we are. If we trade our stories for bread, we will eat, but we will no longer be men. We will be empty vessels."
+
+The voice sighed, a sound that chilled the mountain air, and spoke no more.
+
+Kaelen returned to the village. Doubt arrived early and stayed with him through the bitter months, gnawing at his heart every time he saw a hungry child. Courage arrived late, only in the quiet realization that he had held the line. Many died that winter. The blight took Kaelen's neighbor, and it took Kaelen's own sight. He lived out his remaining years in darkness, weaving by touch, singing the old songs so they would not be forgotten. The village diminished, but it survived.
+
+The Pale Gate remained locked. The victory was bitter, and the wounds of that winter never truly healed. But the truth of who they were was preserved, carried forward in the trembling, faithful songs of a blind weaver.
+
+*We pay the earth with tears and bone,*
+*To keep the dark beneath the stone.*
+*For bread is dust when names are lost,*
+*And every harvest counts the cost.*
+*—Inscribed on Kaelen’s loom, long after the wood had turned to rot.*
