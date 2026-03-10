@@ -2029,3 +2029,69 @@ But they say that as long as the bucket descends, the single drop continues to f
 *Better the dry and aching throat,*
 *Than the stagnant peace of the shallow moat.*
 *—A weaver’s song, sung at the looms of Isen.*
+
+---
+
+# The Tender of the Iron Seed
+
+*A fragment transcribed from the oral history of the Ash-Lands, dated to the Years of the Slow Withering.*
+
+In the shadow of the Black Ridge lay the Ash-Lands. They were not called so because they were burnt, but because the earth there was grey and powdery, lacking the memory of rain. Nothing green grew there, save for a single, twisted briar at the center of the plain. It was an ugly thing, all thorns and knotted wood, bearing no leaves and no blossoms.
+
+It was called the Iron Seed, though it was not a seed but a remnant. The old stories claimed it was the root of the first tree that had held the sky apart from the earth.
+
+Bram was the Tender. He was a man made of dirt and quiet patience. His back was bowed from years of carrying water from the distant river, a journey that took half the day. Every evening, he poured a single bucket of muddy water over the base of the briar.
+
+"Why do you labor over dead wood?" asked the passing merchants, their wagons heavy with silks and spices. "The land is cursed. Come with us to the golden cities of the south, where the rivers run clear and the trees bear sweet fruit."
+
+"The briar is not dead," Bram would say, resting his hand on the sharp thorns, oblivious to the pricks. "It is holding its breath."
+
+"It is a weed," the merchants laughed. "A stubborn, ugly weed. You waste your life on a thing that gives you nothing in return."
+
+"It gives me a place to stand," Bram replied.
+
+Years passed. The Slow Withering crept across the world. The rivers in the south began to dry. The golden cities lost their luster as the soil turned to dust. The air grew thin, and a great weariness settled over the hearts of men.
+
+A scholar from the High Academies came to the Ash-Lands. He wore robes of pale silk, though they were now stained with the grey dust. He carried a heavy book bound in iron.
+
+"I have read the ancient texts," the scholar said, looking at the briar with tired eyes. "The Iron Seed is the anchor. If it dies, the sky will fall and the earth will crumble. It requires a sacrifice."
+
+"I give it water," Bram said.
+
+"Water is not enough," the scholar said. "The Withering is a hunger. It demands life. The texts say the Tender must offer his own blood, freely given, to wake the briar."
+
+Bram looked at the ugly, knotted wood. He looked at his hands, calloused and cracked from years of carrying the bucket. He was not a hero. He was just a man who knew how to carry water.
+
+"Will it bloom?" Bram asked.
+
+"It will hold," the scholar said. "That is all we can ask of it."
+
+Bram nodded. He did not ask for a reward. He did not ask for glory. He simply understood that the task was his, because he was there.
+
+He took his small pruning knife, the one he used to clear away the dead wood. He knelt by the roots of the briar. The thorns seemed to reach for him, sharp and hungry.
+
+"It will hurt," the scholar warned.
+
+"I am used to the ache," Bram said.
+
+He pressed the knife to his arm. He drew a long, shallow cut. The blood welled up, bright and startling against the grey dust. He held his arm over the roots, letting the drops fall.
+
+*Drip. Drip. Drip.*
+
+The earth drank it greedily. The briar did not bloom. It did not suddenly burst into green leaf. But the thorns seemed to darken, taking on a deeper, heavier hue. The air around the plant grew thick, resisting the dry, thin wind of the Withering.
+
+Bram felt a profound exhaustion settle over him. He felt the years of labor, the weight of the water, the pain of the cut, all draining into the roots. He slumped against the knotted trunk.
+
+"It is done," the scholar whispered, closing his book. "The anchor holds."
+
+Bram did not answer. He was asleep, a deep, dreamless sleep from which he would not wake.
+
+They say the Ash-Lands are still grey and barren. The Iron Seed remains a twisted, ugly briar. It bears no fruit, and it offers no shade. But when the great storms of the Withering blow across the plains, tearing the roofs from the golden cities and scattering the dust of empires, the briar stands firm.
+
+And they say that beneath its roots, the earth is not ash, but dark, rich loam, watered by a sacrifice that asked for nothing and held the world together.
+
+*The bright flower fades when the summer is done,*
+*But the iron root holds in the dark and the sun.*
+*A gift with no price is the heaviest stone,*
+*To build the foundation that stands all alone.*
+*—A song of the Ash-Lands, sung when the wind blows hard.*
