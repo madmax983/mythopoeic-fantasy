@@ -2029,3 +2029,107 @@ But they say that as long as the bucket descends, the single drop continues to f
 *Better the dry and aching throat,*
 *Than the stagnant peace of the shallow moat.*
 *—A weaver’s song, sung at the looms of Isen.*
+
+---
+
+# The Ploughman of the Empty Field
+
+*A narrative fragment unearthed from the clay libraries of Oakhaven, translated from the High Tongue.*
+
+In the days when the Great Silence was still a whisper in the mountains, the valley of Aethelgard was known for its deep, black soil. It was a soil that remembered the ancient waters and yielded crops of startling vitality. But at the western edge of the valley, bordering the high passes, lay the Ashen Field.
+
+The Ashen Field grew nothing. It was a broad, flat expanse of pale, lifeless earth that felt cold to the touch even in the height of summer. No weed would take root there. No bird would land on its surface.
+
+Taran was a ploughman. His hands were thick with calluses, and his shoulders were permanently bowed from the weight of the yoke. He was not a man of great thoughts or ambitions. He understood the language of the seasons and the slow, heavy turning of the earth.
+
+Every spring, before the first seed was sown in the fertile valley, Taran would walk his oxen to the Ashen Field. He would set the iron share into the pale dust, and he would plough. He ploughed straight, deep furrows from dawn until dusk, for three days. He sowed no seed. He simply turned the dead earth, leaving it open to the sky.
+
+"Why do you waste the beasts' strength?" asked the new Bailiff, a man of ledgers who measured worth by the weight of the harvest. He wore clean linen and spoke with the clipped efficiency of the city. "There is rich land in the eastern bend that lies fallow. You spend three days on a field that yields not a single grain."
+
+"My father ploughed it," Taran said, leaning on his heavy ash-wood staff. "And his father before him. It is the first work of the spring."
+
+"It is irrational," the Bailiff sighed, his face a portrait of weary reason. "The earth here is sterile. You are turning dust into dust. If we plough the eastern bend, we can feed ten more families this winter. We must think of the children, Taran. It is a sin to waste labor when bellies are empty."
+
+It sounded so reasonable. It sounded like goodness. The eastern bend was rich and dark; it would burst with wheat. The Ashen Field was a stubborn, ugly scar.
+
+"The old songs say the field must be opened," Taran muttered, though doubt had already begun to gnaw at his mind. "They say it is a breathing space for the deep earth."
+
+The Bailiff smiled, a gentle, understanding smile. "The old songs did not have to survive the long winters. We do. Obedience to a dead tradition is not faithfulness; it is foolishness. Leave the dust alone."
+
+Taran looked at his oxen. They were tired. He looked at his own cracked hands. He was tired. The promise of the eastern bend was sweet, a vision of golden grain and full silos. The Ashen Field offered only aching muscles and a harvest of nothing.
+
+That spring, for the first time in memory, the Ashen Field was left unbroken. Taran drove his team to the eastern bend. The earth there was soft and eager. The plough cut through it like a hot knife through butter. It felt like progress.
+
+But the Ashen Field, left alone, began to settle.
+
+It did not harden into stone. It did something worse. It became perfectly smooth. The wind smoothed the pale dust until it looked like a sheet of dirty glass. And underneath that smoothness, the pressure began to build.
+
+The old songs had not lied. The field was a breathing space. Deep beneath the valley lay the Slumbering Dark, a remnant of the First Breaking. It was a pressure, an ancient malice that sought to crack the foundations of the world. For generations, the deep, open furrows of the Ashen Field had allowed that pressure to vent, slowly and harmlessly, into the empty sky. The ploughing was not agriculture; it was a valve.
+
+By midsummer, the air in Aethelgard grew thick. The birds stopped singing. The water in the wells tasted faintly of iron and despair. The wheat in the eastern bend grew tall, but its color was wrong—a sickly, unnatural green that seemed to absorb the sunlight rather than reflect it.
+
+People grew irritable. Neighbors argued over nothing. A heavy, dreamless sleep settled over the valley each night, a sleep that brought no rest. The Bailiff grew thin, his ledgers failing to account for the creeping rot in the root cellars.
+
+Taran felt the wrongness in his bones. The earth beneath his feet no longer felt like a companion; it felt like a trap ready to spring.
+
+One evening, he walked to the edge of the Ashen Field. The pale expanse was unnervingly smooth, flawless in its sterility. He knelt and placed his palm against the dust.
+
+It was hot. A slow, rhythmic thrumming vibrated against his skin, like the heartbeat of a buried leviathan.
+
+He remembered his father's words, spoken on a cold morning years ago: *"We do not plough to grow the wheat. We plough to let the earth exhale."*
+
+Taran understood then. The goodness of the Bailiff had been a practical thing, a transactional thing. It demanded a harvest for the labor. But the world was older than ledgers. Some labor was a sacrifice, given to the void simply so the void would not give back.
+
+"I have stopped the breath," Taran whispered.
+
+He did not wait for the morning. He ran back to his barn. The oxen were asleep. He did not wake them. He knew the beasts would not survive the heat building in the field. This was a debt he had incurred alone.
+
+He carried the heavy iron plough on his own shoulders, dragging the wooden shafts behind him. The iron dug into his flesh, but he welcomed the pain. It was a waking thing in a sleeping world.
+
+He reached the Ashen Field. The heat rising from the smooth dust was suffocating. The air smelled of brimstone and old, bitter magic.
+
+Taran hitched the heavy leather traces to his own chest. He took the wooden handles in his scarred hands.
+
+"I am the beast of burden," he grunted to the empty air.
+
+He drove the iron share into the ground.
+
+The earth resisted. It had formed a crust, baked hard by the trapped pressure from below. Taran threw his entire weight forward. The iron bit into the dust, and a hiss of foul air escaped, burning his eyes.
+
+He began to pull.
+
+Every step was an agony. The plough felt as though it were anchored to the center of the world. The leather traces cut into his shoulders, drawing blood. The dust rose in a choking cloud, stinging his throat.
+
+"Obedience," he rasped, forcing one foot in front of the other. "Not understanding."
+
+He did not understand the ancient magic that required this suffering. He did not understand why the world was built on such precarious balances. He only knew that the field had to be opened.
+
+He carved the first furrow. A foul, grey smoke seeped from the broken crust, carrying with it a sound like a distant, agonizing groan.
+
+He turned and began the second. The heat scorched his boots. His vision blurred. The Bailiff's voice echoed in his mind—*It is a sin to waste labor. You are turning dust into dust.*
+
+"I am turning death into air," Taran answered the silence.
+
+He ploughed through the night. He did not stop to drink. He did not stop to rest. He became nothing but the forward lean, the bite of the iron, the tearing of the crust. The long defeat of his own body was the price he paid for the valley's breath.
+
+When the dawn finally broke, it revealed a ruined man in a ruined field. The smooth perfection of the Ashen Field was gone, replaced by deep, ragged, ugly gashes in the pale earth. Thick, grey smoke drifted lazily up from the furrows, dissipating harmlessly into the cold morning sky.
+
+The heavy, oppressive feeling in the valley lifted. The water in the wells ran clear. The unnatural green of the eastern wheat faded to a healthy gold.
+
+They found Taran lying at the end of the last furrow, his hands still gripping the wooden handles of the plough. He was alive, but barely. His chest was torn, his breath shallow. The heat of the venting earth had seared his lungs.
+
+The Bailiff stood over him, looking at the ugly, barren field, and then at the broken man. For the first time, his ledgers offered no comfort.
+
+"There is no crop here," the Bailiff whispered, weeping. "There is nothing."
+
+"There is tomorrow," Taran croaked, his voice a ruined rasp.
+
+Taran lived, but he never walked without a heavy limp again, and his breath always carried a wet rattle. He could no longer work the eastern bend. He sat by the door of his cottage, watching the younger men take the harvest.
+
+But every spring, when the frost broke, the village did not ask the Bailiff where to begin. They took the strongest oxen, they hitched the heaviest plough, and they went to the Ashen Field. They tore the barren dust open, asking for nothing in return, remembering the man who had bought their breath with his own.
+
+*The ledger counts the golden grain,*
+*But cannot weigh the hidden pain.*
+*For fields of dust hold back the night,*
+*And broken backs preserve the light.*
+*—A verse sung during the spring sowing in Aethelgard.*
