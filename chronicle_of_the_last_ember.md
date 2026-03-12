@@ -2029,3 +2029,95 @@ But they say that as long as the bucket descends, the single drop continues to f
 *Better the dry and aching throat,*
 *Than the stagnant peace of the shallow moat.*
 *—A weaver’s song, sung at the looms of Isen.*
+
+---
+
+# The Keeper of the Tarnished Coin
+
+*A fable recorded by the traveling scribes of the Dust Road, dated to the Years of the Long Drought.*
+
+The city of Aethel was built of white stone, its streets paved with marble, its people draped in fine silks. It was a place of wealth, a hub of commerce where the rich merchants traded spices, gems, and gold. The air was thick with the scent of perfumes and the sound of silver coins clinking in leather pouches.
+
+But at the edge of the market, where the white stone gave way to the packed earth of the Dust Road, sat an old woman named Elara. She was not a merchant, nor a beggar. She was the Keeper of the Toll.
+
+The Toll was not a bridge or a gate. It was a simple, wooden bowl placed on a small, unsteady table. Beside it sat Elara, her face weathered like an ancient map, her hands knobby and scarred.
+
+"What is the toll for?" asked a young merchant, newly arrived in Aethel. He carried a purse heavy with gold and wore a tunic of crimson silk.
+
+"It is for the crossing," Elara replied, her voice rough as unpolished stone.
+
+"Crossing what? The road is open. There is no river, no wall."
+
+"It is for crossing from the known to the unknown," Elara said. "From the safe to the perilous. The Dust Road is long, and the world is wide."
+
+The young merchant laughed. He tossed a bright, newly minted gold coin into the wooden bowl. It rang with a clear, sharp sound. "Keep the change, old woman. The road is just a road."
+
+Elara did not smile. She looked at the gold coin, shining in the sun. Then she picked it up and handed it back to him.
+
+"I cannot take this," she said.
+
+The merchant frowned. "Is it not enough? It is pure gold."
+
+"It is too pure," Elara said. "It has no weight. It has no memory. It has never been spent on sorrow, or given in hope. It is just metal."
+
+She reached into a small pouch at her belt and brought out a coin. It was made of iron, dull and heavy. Its edges were worn smooth, and its face was obscured by years of passing from hand to hand. It was tarnished, ugly, and entirely unremarkable.
+
+"This is the toll," Elara said, placing the iron coin in the bowl. It made a dull, heavy thud.
+
+The merchant stared at her, then walked away, shaking his head.
+
+Years passed. The young merchant grew rich and powerful. He built a grand house of white stone, filled it with fine things, and married a woman of noble birth. He forgot the old woman at the edge of the market.
+
+Then, the Long Drought came.
+
+It did not come suddenly. It crept in slowly, day by day, month by month. The rains failed. The rivers shrank to trickles, then to dry beds of cracked mud. The crops withered in the fields. The white stone of Aethel grew dusty and grey.
+
+The merchants’ gold could not buy rain. Their silver could not buy wheat. The people of Aethel began to starve.
+
+The rich merchant, now an older man with grey in his hair, sat in his grand house and watched his wealth turn to dust. His wife had died of a fever, and his children had gone south, seeking greener lands. He was alone, surrounded by his gold, but he could not eat it, and he could not drink it.
+
+He remembered the old woman at the edge of the market.
+
+He walked through the dusty streets. The market was empty. The stalls were broken, the merchants gone. But Elara was still there, sitting by the wooden bowl.
+
+She looked exactly the same. Her face was weathered, her hands scarred.
+
+"You are still here," the merchant said, his voice hoarse.
+
+"I am the Keeper," Elara said.
+
+The merchant looked at the wooden bowl. It was empty.
+
+"I have nothing," he said. "My gold is useless. My silver is dirt."
+
+Elara looked at him. She saw the lines of sorrow on his face, the weight of loss in his eyes. She saw the man who had lost everything, but who had gained something else.
+
+"You have weight now," Elara said softly.
+
+She reached into her pouch and brought out the tarnished iron coin. She held it out to him.
+
+"This is the toll," she said.
+
+The merchant took the coin. It felt heavy in his hand. He looked at its dull surface, its worn edges. He thought of all the hands it had passed through, the sorrow and the hope it had known. He thought of his dead wife, his absent children, his ruined wealth.
+
+He placed the coin in the wooden bowl.
+
+*Thud.*
+
+The sound was dull and heavy, but it resonated in the quiet market. It sounded like an ending, and a beginning.
+
+The merchant looked up. The sky was still grey and dusty. The drought was not broken. But he felt a strange, quiet peace settle over him.
+
+He turned and looked at the Dust Road. It stretched out before him, long and perilous, but for the first time, he did not fear it.
+
+"The road is open," Elara said.
+
+The merchant nodded. He stepped onto the Dust Road, leaving his white stone house and his useless gold behind. He walked into the unknown, carrying nothing but the weight of his own sorrow, and the knowledge that he had paid the toll.
+
+They say Elara still sits at the edge of the market, waiting for those who are ready to cross. And they say that the toll she requires is never gold or silver, but something much heavier. She asks for the currency of the heart, the tarnished iron of experience, the weight of a life truly lived.
+
+*Gold is light, it buys the day,*
+*But iron is heavy, it marks the way.*
+*The shiny coin is quickly spent,*
+*But the tarnished metal leaves a dent.*
+*—A song of the Dust Road, sung by those who walk it.*
