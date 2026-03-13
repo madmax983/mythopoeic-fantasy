@@ -2029,3 +2029,98 @@ But they say that as long as the bucket descends, the single drop continues to f
 *Better the dry and aching throat,*
 *Than the stagnant peace of the shallow moat.*
 *—A weaver’s song, sung at the looms of Isen.*
+
+---
+
+# The Tender of the Barren Orchard
+
+*A fragment transcribed from the oral history of the Vales of Oakhaven, dating to the Years of the Grey Rain.*
+
+The Orchard of Aethelgard sat in the shadow of Mount Taranis—a mountain whose name in the deep tongue meant "The Sleeping Judge." Once, the orchard had borne fruit that tasted of sunlight and summer wind, apples that could mend a fever or heal a broken heart. But that was before the Grey Rain came.
+
+The Grey Rain did not drown the world in violence. It was a fine, ceaseless mist that smelled of old dust and weary ledgers. Where it touched, things did not die; they simply forgot how to grow. The trees of the orchard twisted into gnarled, ash-colored sentinels. They dropped their leaves. They bore no fruit. The magic of the world was fading, not defeated by dark lords, but smothered by a practical, quiet despair.
+
+Bran was the Tender. He was a man of slow movements and quiet words, a farmer whose hands were permanently stained with the dark soil of the Vales. His back was bowed from years of carrying water, and his eyes held the quiet sorrow of a man who watches the embers of a fire die and wonders what the cold will bring.
+
+Every dawn, Bran walked the rows of the barren orchard. He carried a pruning hook and a wooden bucket of water drawn from the deep well—the only water untouched by the Grey Rain. He pruned the dead wood, though it was all dead. He watered the roots, though they drank nothing.
+
+"Why do you labor in a graveyard?" asked the newly appointed Magistrate. The Magistrate was a man of the new age, a man who measured success in bushels and coins. He wore a coat of sensible grey wool that matched the rain. "The trees are dead, old man. They yield nothing."
+
+"They are resting," Bran said softly, his hands tracing the rough, ash-colored bark.
+
+"They are useless," the Magistrate countered, his voice reasonable, patient. "We need the land. The village is growing. We can uproot these dead husks and plant tubers. Tubers grow in the grey soil. They are not beautiful, but they fill the belly."
+
+"A tuber fills the belly," Bran agreed, not looking up from his work. "But it does not feed the memory."
+
+The Magistrate sighed. "You cannot eat a memory, Bran. You cannot feed a starving child with a story about magic apples. The world has changed. The magic is a cost we can no longer afford. We must be practical if we are to survive."
+
+"If we forget what an orchard is," Bran said, "we will not survive. We will merely persist."
+
+The Magistrate left him to his foolishness, but as the years passed and the hunger in the village grew, the murmurs began. People looked at the barren orchard and saw not a memory, but a waste of good, arable land. The evil of the Grey Rain was not that it brought monsters, but that it made hope seem inefficient.
+
+One winter, the cold bit deeper than before. The tuber crop rotted in the damp earth. The villagers came to the orchard with axes.
+
+"We need firewood," they said, their eyes hollow, their faces pinched with desperation. "And we need the land for the spring planting. Step aside, Bran."
+
+Bran stood before the oldest tree, a massive, twisted trunk whose roots were deeper than the village well. He had no sword. He had only his pruning hook and his weary body. He was not a hero. He was simply available.
+
+"You must not," he said. His voice trembled, not with fear for himself, but with dread for them. "If you cut the roots, the soil will wash away. The mountain will wake."
+
+"Old wives' tales," a young farmer spat. "The mountain is just stone. We need heat. We need food."
+
+He swung his axe.
+
+Bran did not strike back. He stepped into the path of the swing. The flat of the heavy iron head struck his side, breaking his ribs with a sickening crunch. Bran fell to the grey earth, gasping in pain.
+
+The villagers froze, shocked by the sudden violence. The young farmer dropped the axe.
+
+"I... I did not mean to..." the young farmer stammered, staring at his hands.
+
+Bran looked up at them, his breath coming in shallow, ragged gasps. He pressed his hand to his side, feeling the broken bones grinding together. The pain was absolute, a bright, searing fire in the dull grey of the world.
+
+"Do not," Bran whispered, his voice weak but clear. "Do not cut them."
+
+The Magistrate stepped forward, his face pale. "Why, Bran? Give us a reason that makes sense. Why suffer for dead wood?"
+
+"Because," Bran wheezed, "if we cut them down... we agree that the Grey Rain has won. We agree that the world is only tubers and dust. As long as the trees stand, we remember that the world was once fair. And as long as we remember... it can be fair again."
+
+The Magistrate looked at the barren trees, at the grey sky, at the broken old man bleeding into the soil. He saw the cold logic of survival, but for the first time, he saw the cost of it. It was a cost measured not in grain, but in soul.
+
+He picked up the axe and drove it deep into the ground, burying the blade.
+
+"Leave the trees," the Magistrate ordered.
+
+The villagers, ashamed and tired, went back to their cold homes.
+
+Bran lay in the dirt, the rain mixing with his blood. He could not stand. The cold seeped into his bones. He knew his time was ending, and the wound would not heal.
+
+He placed his bloodied hand on the root of the oldest tree.
+
+"I remember," he whispered to the wood. "I remember the sunlight. I remember the taste of the summer wind."
+
+He closed his eyes, and he hummed a fragment of a prayer his mother had taught him, a song about the First Morning. It was not a beautiful song—his voice was cracked and weak—but it was true.
+
+*Roots in the deep, leaves in the light,*
+*Hold the earth through the longest night.*
+
+He died there, his hand resting on the grey bark.
+
+The next morning, the village awoke to a strange smell. It was not the smell of damp earth or old ledgers. It was the scent of green growing things.
+
+They hurried to the orchard.
+
+Bran was gone, his body taken by the earth. But where his blood had soaked into the roots of the oldest tree, a single, tiny bud had formed. It was not the grey of the rain. It was a vibrant, impossible green.
+
+It did not burst into full bloom. It did not magically heal the whole orchard in a rush of spectacle. It was just one bud on one tree.
+
+But it was enough.
+
+The villagers did not cut the trees. They tended them. They carried water from the deep well. They pruned the dead wood. And they told their children the story of Bran, the Tender who watered the roots with his own blood because he refused to forget what an orchard was.
+
+They say the Grey Rain still falls in the Vales, and the tubers still grow. But they also say that every spring, a few more green buds appear in the orchard, a slow, quiet defiance against the long defeat. And sometimes, when the wind blows from the mountain, the air smells faintly of apples.
+
+*The axe can cut the trunk away,*
+*And logic turns the green to grey.*
+*But memory is a deeper root,*
+*That feeds the earth to bear the fruit.*
+*—A verse stitched into the banners of Oakhaven.*
