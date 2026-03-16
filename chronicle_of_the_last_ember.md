@@ -2029,3 +2029,56 @@ But they say that as long as the bucket descends, the single drop continues to f
 *Better the dry and aching throat,*
 *Than the stagnant peace of the shallow moat.*
 *—A weaver’s song, sung at the looms of Isen.*
+
+---
+
+## The Keeper of the Ash-Tree Gate
+
+*Translated from the brittle scrolls of Oakhaven, third age of the Sundering.*
+
+Before the shadow of the Withered King fell fully upon the valley of Arnoran, there was the Ash-Tree Gate. It was not a fortress, but a pass between two ancient stones, carved with words that no living tongue could speak, only remember. The one who watched the gate was called Elara. She was not a warrior. She was a woman whose hands were calloused from planting root vegetables in the hard, unforgiving earth. She was there because her grandmother had been there, and her grandmother before her, an unbroken line of quiet waiting.
+
+The command, given generations past, was simple: "Keep the lantern lit, and do not let the silence settle."
+
+For fifty years, Elara obeyed. Every evening as the sun bled out behind the western peaks, she struck flint to iron, lit the pale flame of the lantern, and sang. She sang the old songs, the ones that sounded like rain on dry leaves, songs of rivers that had dried up long ago, and names of stars that had fallen from the sky. She did not know why she sang them, only that the silence of the pass felt heavy, like a breath held too long.
+
+Then came the emissary of the new order.
+
+He did not arrive with a drawn sword or a banner of terror. He rode a gray horse, wearing robes of muted silver. His face was kind, lined with what looked like exhaustion. He dismounted slowly and offered Elara a skin of sweet wine, which she refused.
+
+"Mother," he said softly, his voice echoing against the ancient stones. "The strife in the east is done. The King has raised walls of hewn stone around the cities. We are safe. You do not need to stand in the cold anymore."
+
+Elara looked at him, feeling the ache in her knees and the deep, marrow-deep cold that never left her bones. "I must light the lantern," she said, her voice raspy from disuse.
+
+The man sighed, a sound of genuine pity. "The lantern burns oil, Mother. It wards off nothing but the night-moths. The King's walls ward off armies. Come back to the city. There are soft beds, warm hearths. There is no need for this old vigil. It bears no fruit. It serves only a memory."
+
+He was so reasonable. The cold wind bit through her thin shawl, and the thought of a warm fire tugged at her resolve. She looked at the lantern, dented and stained with soot. What did it matter? The world had changed. The old magic had thinned to a thread. Perhaps she was just an old woman singing to deaf stones.
+
+"The charge was given," Elara said slowly, the doubt heavy on her tongue.
+
+"By men who are dust," the emissary replied gently. "Let me quench the flame. You have done enough."
+
+He reached out his hand. He was not forcing her. He was waiting for her consent. He was offering release from the long defeat.
+
+Elara hesitated. She looked at the stones of the gate. They were weathered, the ancient runes nearly worn smooth. If she left, the silence would win. The names of the rivers would be forgotten. The world would shrink to the size of the King's white walls.
+
+"No," Elara said. It was not a shout. It was a sigh. She stepped between him and the lantern.
+
+The emissary's kind face hardened just a fraction. It was not anger, but a profound disappointment. "You choose a slow death over a quiet life."
+
+"I choose to remember," she said.
+
+He did not argue. He simply turned his horse and rode away. The sound of hooves faded, swallowed by the immense, patient quiet of the valley.
+
+That night, the cold was fiercer than any she had known. Her fingers were clumsy, bleeding as she struck the flint, but eventually, the spark caught. The pale light flickered, illuminating nothing but a few paces of frost-rimed ground. Elara wrapped her shawl tighter and began to sing. Her voice cracked, a frail sound against the vast dark, but the stones seemed to hum in return, a tremor felt in the marrow.
+
+She did not live to see the spring. The cold took her near the end of the frost.
+
+When the merchants came through the pass weeks later, they found her frozen beside the lantern. But the lantern was still burning. The oil was gone, the wick was ash, but a pale, enduring light clung to the metal, fed by nothing natural. And in the silence of the pass, if one listened closely, there was the faint sound of rain on dry leaves.
+
+*They tell us the old ways are dead, mere tales for the winter hearth.*
+*But we have seen the unquenched flame upon the mountain pass.*
+*Do not trade the deep truth for the comfortable lie.*
+*For walls will crumble, and empires will fall,*
+*But a single word, faithfully kept, holds the stars in their courses.*
+*—Found pressed within the leaves of the High Scribe’s ledger, author unknown.*
