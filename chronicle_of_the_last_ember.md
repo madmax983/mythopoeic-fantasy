@@ -2029,3 +2029,93 @@ But they say that as long as the bucket descends, the single drop continues to f
 *Better the dry and aching throat,*
 *Than the stagnant peace of the shallow moat.*
 *—A weaver’s song, sung at the looms of Isen.*
+
+---
+
+# The Listener of the Hollow Wood
+
+*A translated legend from the deep archives of the Sylvan Order, recovered after the Burning of the West.*
+
+The Hollow Wood was a place where the trees did not merely grow; they listened. In the Elder Days, it was said that if you spoke a true thing in the wood, the trees would hold the sound in their rings, preserving it for a hundred years. The forest was a library of spoken memory, and its leaves sang with the accumulated wisdom of generations.
+
+But the world was growing tired, and the new Magistrate of the Borderlands was a man of progress. He did not hear a library when he looked at the wood; he saw a waste of good timber and arable land. He saw inefficiency.
+
+The Magistrate did not send armies to conquer the wood. He sent surveyors, practical men with measuring lines and ledgers. They walked among the ancient oaks and asked, "What is your yield? What is your purpose? Why do you take up space when the people need wheat?"
+
+The trees, being ancient and slow, did not know how to answer such small, sharp questions. They had no yield but beauty. They had no purpose but to stand and to hold the truth.
+
+Confronted with the terrible efficiency of the Magistrate's logic, the trees began to doubt. The songs they had held for centuries faded, sounding suddenly frivolous in the face of ledgers and quotas. The wood grew silent, not from the axe, but from shame. The leaves turned grey, and the branches became brittle. The forest forgot how to sing, because it had been convinced that singing was useless.
+
+Rowan was a gatherer of roots. He was not a guardian of lore. He had a bad knee, a back that ached from bending, and a habit of muttering to himself. He knew the wood better than anyone, for he spent his days looking at the dirt, seeking the bitter tubers that kept the village alive in winter. He was a man of the earth, heavy and slow.
+
+When the silence came, Rowan felt it as a physical weight. The air, once thrumming with the memory of old prayers and promises, became flat and heavy. The silence was not a peace; it was an erasure.
+
+The Magistrate arrived with a team of woodsmen. "The forest is dead," he declared, touching the trunk of the oldest oak, a tree so wide ten men could not encircle it. "It has accepted its obsolescence. Clear it. We will plant rows of fast-growing pine for the shipyards. It is the reasonable thing to do."
+
+The woodsmen raised their axes. They were not evil men; they were men with families to feed, who trusted the logic of their leaders.
+
+Rowan stepped out from the underbrush. He looked small and ridiculous, his hands stained with soil, his cloak smelling of damp earth.
+
+"You cannot cut them," Rowan said, leaning on his crooked walking stick.
+
+"They are already dead, old man," the Magistrate said kindly, for he believed himself to be a benevolent man. "Listen. They have nothing left to say."
+
+"They are not dead," Rowan said, his voice grating like two stones rubbed together. "They are embarrassed. You have shamed them with your numbers."
+
+The Magistrate laughed, a sound like dry leaves rustling on stone. "A tree does not feel shame. A tree produces timber. These do not even do that anymore. Step aside, Rowan. Do not stand in the way of tomorrow."
+
+Rowan did not step aside. He walked to the oldest oak. He knelt by its roots, his bad knee protesting with a sharp, familiar agony.
+
+"What are you doing?" the Magistrate asked, his amusement fading into irritation.
+
+"I am giving it something to hold," Rowan said.
+
+He closed his eyes. He tried to think of a great song, a high truth of the Elder Days to feed the starving wood. But he was just a gatherer. He knew no songs of kings or dragons. He only knew the dirt, the smell of rain, the ache in his joints, and the quiet satisfaction of finding a hidden root.
+
+He placed his calloused, dirty hands flat against the grey bark.
+
+"I am Rowan," he whispered to the wood. "I am tired. My knee hurts when the wind turns north. I am afraid of growing old alone, and I do not understand the world anymore."
+
+The woodsmen snickered. The Magistrate sighed.
+
+"But," Rowan continued, his voice dropping to a harsh rasp, "today, the sun felt warm on my neck. And I remembered the taste of the first water from the spring. I am here, and I will not apologize for the space I take."
+
+It was not a poem. It was not a grand truth. It was just a small, heavy piece of reality. It was the truth of a life lived close to the ground, unpolished and undeniably real.
+
+He pressed his forehead against the rough bark. "Hold that," he commanded the tree. "Hold the weight of it."
+
+"Madness," the Magistrate snapped. "Cut it down."
+
+The lead woodsman swung his axe.
+
+But the blade did not strike wood. It struck a sound.
+
+*Thrum.*
+
+The oak vibrated. The sound of Rowan's quiet, unremarkable confession echoed up the trunk, amplifying in the hollow heart of the ancient tree. It was not a song of glory. It was a song of aching knees, of fear, and of the simple, stubborn refusal to yield to the logic of the axe.
+
+The wood caught the sound. The next tree picked it up. Then the next.
+
+The forest began to hum. It was a low, earthy vibration that resonated in the chest and rattled the teeth. It was the sound of existence defending itself against efficiency. The truth did not need to be grand; it only needed to be real enough to anchor the world.
+
+The woodsman's axe was repelled by the acoustic pressure, the iron vibrating so violently it tore from his grip. He stumbled back, his hands numb.
+
+The Magistrate covered his ears. The sound was not loud, but it was incredibly dense. It filled the air, leaving no room for his ledgers, his questions, his calculations of yield and purpose. The air grew thick with the memory of dirt, of sunlight, of survival.
+
+"Make it stop!" the Magistrate cried, falling to his knees as the pressure built.
+
+"I cannot," Rowan said, struggling to stand. He leaned heavily on his stick. "I gave them a truth. And the wood does not let go of the truth."
+
+The Magistrate and his men retreated, driven out by the sheer, heavy presence of the forest's memory. They fled the woods, leaving their axes in the dirt.
+
+Rowan did not live to see the next spring. The effort of pouring his life into the wood had cost him the last of his strength. They found him asleep at the roots of the great oak, his face peaceful, his hands resting on the bark.
+
+The Hollow Wood was never cut down. The Magistrate’s plans were abandoned, for no axe could pierce the hum of the trees. The forest remains, grey and brittle on the outside, a place of deep, resonant silence that occasionally hums with the memory of an old man's aching knee.
+
+It is not a beautiful sound. It does not inspire armies or launch ships. But it is true. And they say that when the people of the Borderlands feel themselves becoming nothing but numbers in a ledger, they walk into the Hollow Wood. They place their hands on the bark, and they remember that simply being alive is a truth heavy enough to break the world's most reasonable lies.
+
+*The ledger counts the grain and gold,*
+*But not the stories in the cold.*
+*A simple truth, though frail and small,*
+*Can stand against the axe's fall.*
+*—A marginal note found in the Surveyor's Handbook.*
