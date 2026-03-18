@@ -2029,3 +2029,49 @@ But they say that as long as the bucket descends, the single drop continues to f
 *Better the dry and aching throat,*
 *Than the stagnant peace of the shallow moat.*
 *—A weaver’s song, sung at the looms of Isen.*
+
+---
+
+## The Ash and the Ink
+
+*Recovered from a soot-stained ledger found in the ruins of the Lower Archives, dated to the year the rivers ran grey.*
+
+It did not begin with the burning of books. It began with the need for warmth.
+
+The winter of the Long Grey had come early to Oakhaven, and the stores of firewood were exhausted before the solstice. The frost crept through the stone walls, settling in the joints of the old and the lungs of the young. Morvan, the Overseer of the Grain, was a man of practical mercies. He saw the shivering children and the elders who no longer spoke, and he made a ledger of survival.
+
+"We cannot eat paper," Morvan declared to the council, his voice thick with a weariness that passed for wisdom. "We cannot wrap the newborn in old songs. The Lower Archives hold a thousand seasons of dry parchment and wooden bindings. What good is the history of the First Kings if there is no one left to read it?"
+
+It was a reasonable argument. It was a terrifying efficiency.
+
+Caelen was a man bent by the weight of too much sitting. He was a scribe of the third tier, tasked only with copying the minor genealogies and the yields of the barley harvest. His eyes were milky with cataracts, and his fingers were stained black with ink that would never wash away. He was not a guardian of the high lore; he simply knew the smell of the dust and the quiet hum of the old words resting in the dark.
+
+When the carts came to the Archives, driven by men who looked away in shame, Caelen did not fight them. He had no strength for swords, and there were no swords to be had. He watched as the ledgers of ancient debts, the treaties written in the blood of long-dead kings, and the songs that had coaxed the spring from the frozen earth were piled like kindling.
+
+"It is for the children, Caelen," Morvan said softly, resting a heavy hand on the old scribe’s shoulder. "We are keeping the blood warm. That is the only story that matters now."
+
+But Caelen knew that without the stories, the blood would cool from the inside out. He knew the world was held together by the memory of its making, and that to burn the memory was to invite the silence to stay forever.
+
+That night, as the first great bonfire roared in the central square, turning the frost to weeping slush, Caelen descended into the deepest vault. The air there tasted of old breath and crushed petals. He sought only one text: *The Book of the Deep Roots*, a tome bound in ironwood and written in a tongue that was more sung than spoken. It held the names of the mountains before the rain shaped them, and the covenant made with the soil.
+
+He could not carry it. The book was massive, and his arms were frail.
+
+Caelen knelt on the cold stone. He had no magic, only the ink in his veins and the terrible clarity of the obedient. He took up his copying knife.
+
+If he could not carry the book, he would carry the words. He did not have parchment, so he used the only vessel left to him. Starting with his left forearm, he carved the ancient syllables into his own skin, rubbing the black ink of the Archives into the wounds so they would not heal clean.
+
+The pain was a bright, white fire, sharper than the flames in the square above. It was not a grand magic; it was merely a transaction of flesh for memory. With every character, the hum of the stone grew louder in his ears. He carved the song of the first morning on his chest, and the weeping of the parted rivers on his thighs.
+
+When the Overseer’s men finally found him, the vault was empty of the book—it had crumbled to fine, grey dust the moment its burden was fully transferred. Caelen lay on the floor, bleeding and black with ink, shivering not from the cold, but from the weight of the history pressing into his bones.
+
+They did not burn him. He was a man, and even in the Long Grey, they did not burn men. But they left him to wander the outer rings of the city, a ragged, scarred thing, muttering the names of mountains that no longer existed.
+
+Morvan kept the children warm that winter, and for that, he was called a savior. But in the spring, when the frost finally broke, the earth in the village fields did not soften. The seeds lay dormant in the dirt. The people had forgotten the words to ask the soil for life, and the soil had forgotten how to listen.
+
+Only Caelen, sitting at the edge of the barren fields, tracing the raised scars on his arms, still knew the song. And though his voice was broken, and his hands could no longer hold a pen, he began to sing to the dust.
+
+*The fire warms the freezing bone,*
+*But burns the root beneath the stone.*
+*The flesh will fail, the ash will blow,*
+*But scars remember what they know.*
+*—A verse whispered among the gleaners of the silent fields.*
