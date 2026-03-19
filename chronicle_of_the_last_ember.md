@@ -2029,3 +2029,103 @@ But they say that as long as the bucket descends, the single drop continues to f
 *Better the dry and aching throat,*
 *Than the stagnant peace of the shallow moat.*
 *—A weaver’s song, sung at the looms of Isen.*
+
+---
+
+# The Keeper of the Blind Hounds
+
+*A fragment transcribed by the Monks of the Lower Reach, long after the roads were broken.*
+
+The border of the known world was not marked by a wall of stone or a river of rushing water. It was marked by the patrol of the Blind Hounds. They were ancient beasts, massive as draft horses, their coats the color of dirty snow and their eyes milky white. They did not hunt by sight, for the things that tried to cross the border often wore pleasing shapes. The hounds hunted by truth. They could smell a lie on the wind, and they tracked the shadows that sought to slip into the world of men.
+
+Fenn was the Keeper. He was not a warrior or a mage. He was a shepherd who had lost his flock to a sudden, inexplicable frost. When he wandered to the Edge in his grief, he found the previous Keeper dying in the dirt. The old man had pressed a braided cord of rough wool into Fenn’s hand.
+
+"They do not need you to guide them," the old Keeper gasped, his breath rattling. "They need you to hold the leash. They are heavy with the world's sorrow. If you let go, they will run into the dark and be lost, and the dark will come here."
+
+So Fenn stayed. He lived in a sod hut at the edge of the encroaching mist. Every night, the hounds would pace the border, their massive heads low, sniffing the silence. When they caught the scent of a deceit, they would howl. It was a terrible sound—a deep, resonant baying that shook the earth and made the villagers in the valley below cover their ears.
+
+Years passed. The howling kept the valley safe, but it also kept them awake.
+
+One spring, an Emissary arrived from the capital. He was a man of reason, his robes immaculate, smelling of lavender and old paper. He rode a white horse and spoke in measured, soothing tones.
+
+"The world is changing, Fenn," the Emissary said, standing a safe distance from the growling hounds. "We are building treaties. We are making peace with the tribes of the mist. We do not need beasts that snap at every passing shadow."
+
+"They do not snap at shadows," Fenn said, his hands resting on the rough wool of the leash. "They snap at lies."
+
+"A lie is sometimes necessary for peace," the Emissary smiled, a tired, practical smile. "Compromise is the mortar of civilization. Your hounds are too absolute. They cause friction. We want to build a bridge of understanding, and you are insisting on a fence."
+
+The Emissary brought forth a heavy wooden chest. Inside lay three collars of polished silver, etched with intricate, calming runes.
+
+"Put these on them," the Emissary urged softly. "The silver will soothe them. It will dull their noses, so they do not bark at the small, harmless deceits of diplomacy. They will only wake for the great dangers. It is more reasonable. The valley will finally sleep."
+
+Fenn looked at the silver. It was undeniably beautiful. It made a certain kind of sense. Why should the hounds howl all night because a merchant down in the valley had watered his wine, or a husband had lied to his wife? The howling was exhausting.
+
+But the hounds backed away from the collars, the hair on their spines bristling. They let out a low, rumbling growl that vibrated in Fenn’s boots.
+
+Fenn hesitated. He remembered the old Keeper's warning. "I cannot," he said. "If they do not bark at the small lies, they will forget the scent of the great ones."
+
+The Emissary sighed, looking disappointed but not surprised. He did not argue. He went down into the valley and spoke to the villagers. He spoke of progress, of undisturbed sleep, of the rich trade they could open with the people of the mist if only the aggressive hounds were quieted.
+
+The next day, the villagers came up the hill. They were good people, tired people, driven by the seductive vision of a peaceful, prosperous future. They brought ropes and heavy staves.
+
+"We are sorry, Fenn," the village elder said, not meeting his eyes. "But we are exhausted. We want to trade. We want to rest. You are holding us back."
+
+They overpowered Fenn. They were many, and he was just a shepherd. They wrestled the hounds to the ground—the beasts refused to bite the people they were sworn to protect—and they snapped the silver collars around their thick necks.
+
+Immediately, the hounds went limp. Their muscles relaxed. Their ears drooped. The restless, vigilant energy drained from them, replaced by a sluggish, comfortable docility.
+
+The Emissary built his bridge. Trade began. Strangers from the mist came into the valley. They seemed fair and spoke with musical voices. They brought glass beads that shone like captured stars, and songs that made the heart feel light and empty. The villagers were delighted. They slept soundly through the nights, untroubled by the howling.
+
+But Fenn, sitting alone at the Edge, noticed the subtle rot.
+
+The villagers stopped looking each other in the eye. They spoke in pleasant half-truths, avoiding difficult conversations. The bread baked in the valley tasted like ash, though everyone politely praised it as a feast. The children stopped playing rough games and sat quietly, staring at the shiny glass beads. It was a creeping corruption of good intentions and polite fictions.
+
+Then, the deep winter came. The mist did not just linger at the border; it thickened and rolled down into the valley.
+
+It was no natural storm. It was the true Shadow, arriving not as a roaring monster, but as a silent, creeping cold that sought to freeze the hearts of the sleeping villagers in their beds. It moved with perfect, chilling quiet.
+
+At the Edge, the hounds slept. The silver collars gleamed in the dim light. The soothing magic of the runes filtered out the overwhelming stench of the Shadow, interpreting it as just another acceptable compromise. They had forgotten how to smell the dark.
+
+Fenn knew what he must do. He ran to the hounds, his breath pluming in the freezing air. He tried to unfasten the collars, but the clasps had melted together, sealed by the magic of the Emissary’s practical peace.
+
+Fenn had no tools, no sword, no key. He had only his own hands.
+
+"Magic is a cost," he whispered to the freezing wind. "A lie can only be broken by a truth that costs."
+
+He knelt in the frost. He placed his bare hands on the silver. He remembered the names the old Keeper had whispered to him, the true names of the beasts, words that tasted of earth and blood.
+
+"You are not pets," Fenn wept, the cold seeping into his bones. "You are the ache of the world. Wake up."
+
+He gripped the silver and pulled.
+
+The metal resisted, burning his palms with a sudden, searing heat. But Fenn did not let go. He pulled with the desperate strength of a man who sees the end of all things. The silver cut deep into his flesh. His blood flowed, red and hot, spilling over the polished runes. It was the blood of an ordinary, flawed man who refused to accept the comfortable lie.
+
+The blood struck the runes, and the magic shattered. The silver collars cracked and fell away in broken pieces.
+
+The hounds awoke.
+
+They smelled the blood. They smelled the sharp, undeniable truth of Fenn’s sacrifice. And then, without the silver to blind them, they smelled the Shadow consuming the valley.
+
+They did not growl. They did not bark.
+
+They roared.
+
+It was a sound of absolute, jagged reality. It shattered the illusion of peace. Down in the valley, the beautiful glass beads cracked into dust. The musical songs of the mist-strangers turned to discordant shrieks. The villagers woke, terrified but suddenly clear-headed, the comfortable fog stripped from their minds.
+
+The hounds charged past Fenn, plunging down the hill into the thickest part of the mist. They tore into the silence with teeth and fury. The Emissary’s bridge collapsed under the weight of their charge. They hunted the Shadow, driving it back, back into the dark where it belonged.
+
+But they did not return.
+
+Fenn waited at the Edge for three days and three nights, holding the frayed end of the wool leash. He heard their bays fading deep into the unseen distance, chasing the lie back to its root, until the silence reclaimed the border.
+
+The valley was saved. The people wept and held their children. But when they looked up at the hill, they did not feel gratitude. They felt the shame of their own complicity. They resented Fenn for reminding them of the cost of their comfort.
+
+Fenn became an exile at the edge of his own home. He had no hounds to patrol the border. His hands were scarred and twisted, unable to hold a shepherd’s crook.
+
+Yet, he did not leave his post. When the mist gathered, trying to creep back across the broken bridge, Fenn would stand at the boundary. He had no roar. But he would speak the truth, quietly and plainly, into the dark. And they say that the dark, remembering the blood on the silver and the hounds that once guarded the line, listened, and stayed back.
+
+*The silver collar shines so bright,*
+*And makes the heavy burden light.*
+*But those who sleep while shadows creep,*
+*Will find they have no soul to keep.*
+*—A verse found etched into the ruined stones of the Emissary's bridge.*
