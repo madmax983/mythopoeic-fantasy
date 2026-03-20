@@ -2029,3 +2029,81 @@ But they say that as long as the bucket descends, the single drop continues to f
 *Better the dry and aching throat,*
 *Than the stagnant peace of the shallow moat.*
 *—A weaver’s song, sung at the looms of Isen.*
+
+---
+
+# The Tender of the Cold Hearth
+
+*A fragment recovered from the border-stones of the Northern Marches, heavily weathered, likely copied by a travelling scribe.*
+
+Orell was not a soldier. He was a maker of simple wooden bowls, a man whose hands knew the grain of elm and ash but had never held a blade. He lived at the edge of the Whispering Woods, where the trees grew too close together and the shadows stretched long even at noon.
+
+Above his village, on a crag of black stone, sat the Hearth of Oakhaven. It was not a hearth for warmth, but a deep iron basin meant to hold a warning fire. The old songs said that if the encroaching cold—not the winter chill, but the Deep Cold that numbs the soul and silences the tongue—ever crept south, the Hearth must be lit. The light would signal the inner cities, and they would remember the ancient oaths and send aid.
+
+But the Hearth had not been lit in three hundred years. The iron was pitted with rust. Birds nested in the basin.
+
+The Deep Cold did not arrive with armies or iron-shod boots. It came as a quiet weariness. It began when the village elders decided that clearing the moss from the old boundary stones was too much trouble for no clear reward. It deepened when the villagers stopped singing the harvest songs, claiming the noise only startled the sheep and spent breath better saved for labor. It settled firmly when the magistrate from the inner cities visited and suggested that the village abandon the rocky, difficult soil and move south, where the living was easier and the tribute more reliably gathered.
+
+"It is only sensible," the magistrate had said, sipping tea in Orell's small home. His voice was smooth, reasonable, and utterly devoid of music. "Why struggle here at the edge of the world? The land is exhausted. The old ways are inefficient. Southward, there is comfort. No one needs to watch the woods anymore. The world has grown beyond such primitive fears."
+
+The villagers listened. They nodded. One by one, they packed their carts. They dismantled their looms and left the boundary stones to tumble into the weeds. It was not a panic; it was a slow, reasonable surrender.
+
+Orell watched them go. He felt the weariness pulling at his own bones. The south sounded warm. The south sounded easy. He looked at his carving knives, at the half-finished elm bowls. He looked at the mountain and the rusted iron basin against the grey sky.
+
+"Are you coming, Orell?" his neighbor asked, pausing his wagon. "There is no one left to buy your bowls. There is no one left to sing with."
+
+"Not yet," Orell said. He did not know why he said it. He only knew that the silence left behind by the departing wagons felt heavier than stone, and someone needed to stay and listen to it.
+
+He stayed.
+
+The winter that followed was not particularly fierce, but it was relentless. A grey blight clung to the trees, sapping the color from the bark and the scent from the pine. The air felt thin. When Orell tried to carve, his hands trembled, not from chill, but from a profound emptiness. He realized the Deep Cold was not a weather; it was a forgetting. It was the slow erasure of meaning from the world.
+
+He remembered the Hearth.
+
+He climbed the black crag. It took him half a day. He was old, his knees ached, and his breath came in thin, ragged gasps. When he reached the summit, the wind was a physical weight, pushing him back. The iron basin was filled with snow and dead leaves.
+
+Orell fell to his knees beside it. He had brought no wood. He had no spark. He only had his carving knife and a few scraps of dry kindling he kept in his pockets.
+
+He looked down at the empty valley. The village was a collection of silent, rotting roofs. The boundary stones were gone, swallowed by the creeping frost.
+
+*Why light it?* a voice whispered in the wind. It was a very reasonable voice, sounding much like the magistrate's. *There is no one left to see. The inner cities have forgotten you. They will not come. You are an old man making bowls for ghosts. Go south. Go to sleep.*
+
+Orell closed his eyes. The voice was right. It was entirely sensible. Lighting the fire was a meaningless gesture, a waste of breath in a dying world. It would change nothing.
+
+But Orell was a maker of bowls. He knew that a vessel is defined by the empty space it holds. And he knew that a vow is defined by the keeping of it, even when the one who asked is long gone.
+
+"I am not a soldier," Orell whispered to the wind. "I do not know the old prayers. I only know how to shape what is given to me."
+
+He reached into his pocket and pulled out the piece of elm he had been carving. It was beautiful, the grain flowing like water, sanded smooth by his calloused thumbs. It was his finest work, a bowl meant for holding the first spring berries. It was the only beautiful thing he had left.
+
+He placed it in the center of the rusted iron basin.
+
+He struck his flint against his carving knife. The sparks flew, frail and bright in the gloom, and died against the wood.
+
+He struck it again. And again.
+
+His hands bled. The wind howled, a chorus of reasonable voices telling him to stop, to rest, to let the frost take the mountain.
+
+But Orell kept striking. He did not strike for victory. He did not strike for rescue. He struck simply because he was there, and the Hearth was empty, and the dark was very deep.
+
+On the hundredth strike, a spark caught the dry shavings. A thin curl of smoke rose, smelling of elm and quiet devotion.
+
+The flame grew. It licked the edges of the beautiful wooden bowl. The bowl began to burn.
+
+Orell sat back, his breath coming in sobs. He watched his masterpiece turn to ash. He watched the fire catch the dead leaves, then the frost-rimed twigs, until a steady, warm glow filled the rusted iron.
+
+It was not a great beacon. It was a small, stubborn fire. It did not push back the Deep Cold. It did not summon armies from the south.
+
+But the light of it fell upon the black stone. It cast shadows that danced like the heroes of the old songs. And for a moment, the wind did not sound like a reasonable surrender. It sounded like a breath drawn in, waiting.
+
+They say Orell died on the mountain, huddled beside the warm iron. They say the inner cities never saw the light, for they had built their walls too high and forgotten where to look.
+
+But the woods did not forget. The creeping frost halted at the base of the crag. And generations later, when the descendants of those who fled south returned, driven by a nameless hunger for the places they had abandoned, they found the Hearth. It was cold, but in the center, perfectly preserved in white ash, was the shape of a wooden bowl.
+
+And they wept, not knowing why, except that something true had been held in the dark until they were ready to return for it.
+
+*The iron rusts, the watchmen sleep,*
+*The shadow gathers, slow and deep.*
+*But bless the hands that strike the spark,*
+*And hold the ember in the dark.*
+*—A marginal note found in the Book of the Marches.*
