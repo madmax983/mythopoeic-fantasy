@@ -2029,3 +2029,39 @@ But they say that as long as the bucket descends, the single drop continues to f
 *Better the dry and aching throat,*
 *Than the stagnant peace of the shallow moat.*
 *—A weaver’s song, sung at the looms of Isen.*
+
+---
+
+## The Burden of the Silver Birch
+
+*Recorded by Brother Elian in the margins of the Vow of Oaths, long after the trees of the Westward March had withered. He writes of a time when the roads were still open, but the shadow was already lengthening.*
+
+Elara was not a warrior. She was a tender of bees and a maker of candles in the village of Oakhaven. Her hands were scarred by wax and sting, not by sword or bow. Yet, when the Pale Emissary came to their valley, it was not the soldiers who answered him.
+
+The Emissary did not ride a fell beast or carry a banner of terror. He arrived on foot, wearing a cloak the color of twilight, his voice as gentle and patient as water wearing down a stone. He spoke of peace. He spoke of an end to the long, grinding years of want. All he asked in return was the root of the Silver Birch that stood in the center of the village—the tree that had grown from a seed older than the mountains.
+
+"It is only a tree," the Emissary had said, spreading his hands. "A symbol. Symbols do not fill bellies or keep the winter frost at bay. Give it to me, and your harvest will never fail. Refuse, and you choose to starve your children for the sake of an old memory."
+
+The village elders, weary from seasons of blight, saw the wisdom in his words. It was a simple bargain. What was the value of ancient roots when weighed against the survival of their kin? They took up their axes and approached the Silver Birch.
+
+But Elara stood before the trunk. She did not raise a weapon, for she had none. She only placed her wax-scarred hands against the pale bark.
+
+"We do not trade what is not ours to give," she said, her voice trembling but unbroken.
+
+"You would let them die for a piece of wood?" the Emissary asked, his tone heavy with a sorrow old and hollow.
+
+"I would not let them live as hollow things," she replied. "If we sell the roots of the world for bread, we will eat ash."
+
+The Emissary sighed, a sound like autumn wind stripping leaves from a dead branch. He did not strike her down. He did not call forth armies. He simply turned and walked away, leaving the shadow of his promise hanging over the village.
+
+The winter that followed was the cruelest in living memory. The harvest failed entirely. Many perished, and the grief in Oakhaven was a heavy, suffocating blanket. The elders cursed Elara's name, and she bore their hatred in silence, offering her own meager rations to the children, growing thinner and more frail as the months dragged on.
+
+She did not live to see the spring. But when the snows finally melted, the Silver Birch bloomed with a radiance never before seen. Its leaves shimmered like captured starlight, and the sap that bled from its trunk was sweet and sustaining. Those who partook of it found their strength renewed, and the sickness that had plagued them vanished.
+
+The village survived. They did not triumph, for the dead could not be returned, and the memory of the Emissary's offer lingered like a cold draft. But they remained themselves.
+
+*To carry the weight of the unbroken word,*
+*Is to walk into the dark, unseen, unheard.*
+*No glory awaits in the bitter cold,*
+*Only the truth that frail hands hold.*
+*—Fragment of a lament sung in the Vales of Oakhaven.*
