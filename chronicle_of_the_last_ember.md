@@ -2065,3 +2065,51 @@ The village survived. They did not triumph, for the dead could not be returned, 
 *No glory awaits in the bitter cold,*
 *Only the truth that frail hands hold.*
 *—Fragment of a lament sung in the Vales of Oakhaven.*
+
+---
+
+## The Weight of the Vellum
+
+*Found among the scattered pages of the ruined scriptorium at Oakhaven, written by an unknown hand. It speaks of the final days of the Great Archive, when necessity began to devour memory.*
+
+The winter the river froze solid to its stony bed, the Abbot made a quiet, reasonable decree. The archives were full of heavy vellum folios that had not been opened in centuries. The village was starving, and the sheep had perished in the drifts. There was no leather for boots, no hides for coats against the biting wind. The old books, the Abbot argued gently, were an extravagance the living could no longer afford.
+
+"The words do not warm us," he said to the scribes, his voice thick with weariness. "The ink does not fill our bellies. We must scrape the vellum clean and boil it for glue, or stitch it into garments. It is a sacrifice, yes, but what good is a history of the world if there is no one left to read it?"
+
+It was a sensible argument. Most of the scribes agreed, bowing their heads to the grim truth of it. They began to carry the heavy tomes up from the deep vaults, their breaths blooming in the freezing air. They did not do it with malice, but with a dull, heavy resignation. It was the efficient, practical choice in a dying season.
+
+But a scribe named Kaelen did not bring his assigned volumes. Kaelen was not a scholar. He was young, slow to read, and often tasked with sweeping the dust from the lower alcoves. His fingers were always stained with soot from tending the braziers. He had been sent to fetch the *Book of Names*, a vast ledger containing the true names of the ancient waters, the deep roots of the valleys, and the lineage of the people who first walked the high passes.
+
+When they came looking for him, they found Kaelen standing by the brazier, the *Book of Names* clutched tightly to his chest.
+
+"Give it to us, Kaelen," the Abbot said gently. "We must make cloaks for the children in the lower village. The vellum is thick enough to turn the frost. Would you let them freeze for the sake of dead names?"
+
+Kaelen shook his head. He looked terrified. His hands trembled so violently the heavy wooden covers rattled against his ribs.
+
+"If we scrape away the names, we will forget what the world is," Kaelen whispered. "We will just be men in the cold. We will not be *from* anywhere."
+
+"We are already just men in the cold," the Abbot replied, extending a hand. "Give me the book."
+
+"No," Kaelen said. He stepped backward, closer to the iron grate of the brazier. "You are trading the soul of the valley for a season of warmth. Next winter, the frost will return, and we will have nothing left to burn but ourselves."
+
+The Abbot sighed, a sound of profound exhaustion. He signaled to the older scribes. They moved forward, not with anger, but with the heavy, terrible efficiency of those who believe they are doing what must be done.
+
+Kaelen knew he could not fight them. He had no strength for it, and his courage was frail. Instead, he did the only thing he could think of. He opened the heavy iron clasp, tore the first page of names from the binding, and swallowed it.
+
+The scribes stopped, staring in horror. Kaelen choked, his face reddening as the thick, dry vellum scraped down his throat. He tore another page, chewing furiously, his eyes watering from the effort and the pain.
+
+"Stop him!" the Abbot cried, realizing the desecration of the sacred calfskin. But before they could reach Kaelen, the young scribe had thrown the remainder of the *Book of Names* into the brazier.
+
+The flames leaped up, greedy and bright. The old vellum curled and blackened, the ink flashing silver for a fleeting instant before turning to ash. Kaelen collapsed, coughing violently, his throat raw and bleeding from the pages he had forced down.
+
+They beat the fire out, but it was too late. The *Book of Names* was gone. The Abbot looked at the charred remains, his face pale. He looked at Kaelen, who lay gasping on the stone floor, his lips stained with ink and blood.
+
+They banished Kaelen from the archive that very day. He walked out into the frozen valley with nothing but the thin robe on his back. They say he did not survive the week. The village received no cloaks from the *Book of Names*, and the children shivered through the dark months.
+
+The Abbot’s choice had been practical, and Kaelen’s sacrifice was brutal, desperate, and seemingly useless. The book was destroyed anyway. Yet, it is said that Kaelen died with the names of the ancient rivers in his belly, and because he did not surrender them, the quiet magic of the valley did not entirely fade. The rivers still flow when the ice thaws, remembering the names that were swallowed in the dark.
+
+*They scrape the hide to save the flesh,*
+*And weave the words into a mesh,*
+*But memory is a bitter root,*
+*That bears a hard and silent fruit.*
+*—A marginal note found in a ledger of grain, Isen.*
