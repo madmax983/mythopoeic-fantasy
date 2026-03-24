@@ -2065,3 +2065,99 @@ The village survived. They did not triumph, for the dead could not be returned, 
 *No glory awaits in the bitter cold,*
 *Only the truth that frail hands hold.*
 *—Fragment of a lament sung in the Vales of Oakhaven.*
+
+---
+
+# The Speaker of the Useless Names
+
+*A story told by the dusty clerics of the Lower Archive, during the Years of the Tightened Belt.*
+
+In the great mercantile city of Varis, efficiency was a virtue next to godliness. The harbor was a clockwork of cranes; the streets were straight and paved. Everything had a purpose, a price, and a place in the Grand Ledger.
+
+Bram was a copyist in the deep cellars of the Archive. He was not an important man. His ink-stained fingers were always cold, and his eyesight was failing from years of squinting by candlelight. His task was not to record the wealth of Varis, but to copy the Books of the Dead and the Lost.
+
+These books contained the names of people who had died centuries ago, the names of rivers that had dried up, the names of forests that had been logged to build the city. The parchment was rotting in the damp, so Bram copied them onto fresh pages, day after day, year after year.
+
+"What is the point of this?" asked the new Auditor, a man sent by the Merchant Council to streamline the city's expenses. The Auditor was a tired-looking man, with eyes the color of winter ice and a voice that never rose in anger. He smelled of dust and dry ink.
+
+"I am preserving the records, sir," Bram said, wiping his pen.
+
+"But they are records of nothing," the Auditor said gently. "A river that is dry turns no mills. A dead man pays no tariffs. A felled forest yields no timber. You are spending expensive ink and good parchment on ghosts. It is inefficient. It is a waste of the city's resources."
+
+Bram looked at the long lists of names. "It is the law of the Archive, sir. The names must be carried forward."
+
+"The law is old," the Auditor sighed. "We must live in the present. The past is a heavy sack, Bram. Why carry it when you are already so tired? Lay it down. Rest your eyes. Let us burn the rotting books to warm the cellar, and use the fresh parchment for the new trade agreements."
+
+Doubt, as it always does for the tired, arrived early. Bram’s back ached. His fingers were cramped. The Auditor’s words made perfect, reasonable sense. Why *did* he labor over the name of a village that had been swallowed by the sea three hundred years ago?
+
+"Very well," Bram whispered. "I will stop."
+
+He put down his pen. He let the fire die. The Auditor smiled, a thin, weary smile of a man who has solved a problem, and took the fresh parchment away.
+
+For a week, Bram did nothing but sweep the floors. It was easier.
+
+But then, the edges of Varis began to fray.
+
+It started with the Old East Road. It was a road that led to the ruins of a town whose name Bram had stopped copying. One morning, merchants reported that the road simply... ended. It had not been blocked by a landslide; the stones had just faded into an impenetrable wall of grey briars.
+
+Then, the decorative fountains in the square went dry. They were fed by an underground spring whose ancient, forgotten name Bram had left in the rotting books.
+
+The Auditor was pleased. "We did not trade with the East anyway," he said. "And the fountains were a frivolous waste of water. The city is tightening its belt. We are shedding the unnecessary fat."
+
+Bram walked through the city. He saw the world shrinking. The sky seemed a little lower, the air a little thinner. The spaces between the houses felt cramped, devoid of the invisible weight of history. The city was becoming a machine—perfectly efficient, but entirely dead.
+
+"The names are not just records," Bram realized, standing by a dry fountain. "They are the stakes that hold the tent of the world open."
+
+He ran back to the cellar. The rotting books were piled in a corner, waiting for the incinerator.
+
+He had no fresh parchment. The Auditor had taken it all. He had no ink, save for a few dried drops at the bottom of his inkwell.
+
+He opened the first rotting book. The pages were crumbling like ash. The name of the eastern town was almost gone.
+
+Bram did not have magic. He could not weave spells of restoration. But he had his voice.
+
+He opened his mouth, and in the dusty silence of the cellar, he spoke the name.
+
+"Oakhaven," he rasped.
+
+He turned the page.
+
+"The River Silvern."
+
+"The Forest of the Long Sigh."
+
+"Elara. Kaelen. Silas. Mara."
+
+He read the names of the dead, the lost, the useless.
+
+The Auditor appeared at the top of the cellar stairs.
+
+"What are you doing?" the Auditor asked, his voice sharp with annoyance. "You are making noise. Noise is inefficient."
+
+"I am keeping the tent open," Bram wheezed.
+
+"Stop it," the Auditor commanded. "Those things do not exist. You are speaking to the void."
+
+"I am speaking against it," Bram said.
+
+He read faster. The dust from the pages filled his throat. He choked, but he forced the syllables out. Every name was a stone placed against the closing door of the world.
+
+The Auditor descended the stairs. He did not look angry; he looked exhausted. "Why must you struggle? It is so much easier to forget. The world is too big, Bram. It is too heavy. Let it shrink. Let it be small and manageable."
+
+"A small world has no room for grace," Bram coughed.
+
+He kept speaking. He recited the names of the old kings, the forgotten beggars, the dried-up springs. He read until his voice was a broken whisper, until his throat bled, until he collapsed onto the damp stone floor.
+
+When the other clerks found him the next morning, he was dead, his hand resting on a pile of dust that had once been a book.
+
+The Auditor tried to have him thrown in the pauper’s grave, unnamed and unrecorded. But a young clerk, a boy who had heard Bram’s raspy voice drifting up from the cellar, took a piece of chalk and wrote Bram’s name on the cellar wall.
+
+Then, the boy opened the next rotting book. And softly, inefficiently, he began to read aloud.
+
+They say that in Varis, the East Road is open again, though it leads only to ruins. And the fountains run with clear, cold water. The city is not perfectly efficient. It is messy, and it is haunted by the weight of its own past. But it is large. And it is alive.
+
+*The ledger balances the gold,*
+*But stories keep the world from cold.*
+*To name the dead and speak the dust,*
+*Is not a waste, but sacred trust.*
+*—Scratched into the wall of the Lower Archive.*
