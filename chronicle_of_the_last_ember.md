@@ -2065,3 +2065,125 @@ The village survived. They did not triumph, for the dead could not be returned, 
 *No glory awaits in the bitter cold,*
 *Only the truth that frail hands hold.*
 *—Fragment of a lament sung in the Vales of Oakhaven.*
+
+---
+
+# The Watcher of the Rusted Gate
+
+*A fragment transcribed from the oral history of the Hearth-Keepers of Vane, collected during the Second Silence.*
+
+In the days when the stone of the world was still learning its weight, the builders of Vane did not construct their city upon a hill for glory, but for necessity. Below them stretched the Ashen Wastes, a plain that did not merely lack life, but actively despised it. The Wastes did not march or scream; they simply waited, a slow, grey tide that promised an eternity of rest.
+
+To protect the city, the founders had forged the Iron Gate. It was not a physical barrier to keep out armies, but a moral one. It stood at the head of the only pass leading down to the Wastes, a massive arch of black iron, inscribed with words that had the density of lead.
+
+Kael was the Watcher. He was not a soldier of high birth, nor a scholar of deep lore. He was a man whose hands were rough from the plow, whose back ached when the rain was coming, and whose only qualification for the post was that he had been standing near the gate when the old Watcher had died of a sudden, quiet weariness.
+
+His duty was entirely passive, yet entirely consuming. He was to sit on the cold stone bench beside the gate, day and night, and simply watch the Wastes. He was not to fight. He was not to sing. He was only to bear witness to the emptiness, ensuring that the emptiness knew it was seen.
+
+"Why do you sit there, old man?" asked the new Lord of Vane, a man who wore silk that whispered and smiled with teeth that never seemed to touch. He had come to inspect the defenses, bringing with him a retinue of engineers and accountants.
+
+"I watch," Kael said, not turning his eyes from the grey horizon.
+
+"It is a waste of a strong back," the Lord said smoothly. "The Wastes do not move. They are dead. We are spending coin to feed a man who does nothing but stare at dust."
+
+"The dust is patient," Kael murmured.
+
+"The dust is inert," the Lord corrected. "We have need of men in the quarries. We are building a new aqueduct, a marvel that will bring sweet water from the High Peaks directly to the market square. It will be a monument to our progress. But we need laborers."
+
+The Lord’s engineers stepped forward. "We have examined the Iron Gate, my Lord. The iron is old, yes, but it is solid. The inscriptions are deep. It will stand whether this man sits here or not. The architecture is sound."
+
+"You see?" the Lord said to Kael. "The gate does the work. Your presence here is an archaic superstition. A relic of a more fearful age. Come down to the city. Work the quarries. Be part of something beautiful."
+
+It was a reasonable argument. It was an efficient argument. The Lord did not speak of malice or destruction; he spoke of aqueducts and sweet water. He spoke of the common good.
+
+But Kael remembered the words of the old Watcher, passed down through generations not as a command, but as a warning.
+
+*The gate is iron, but the lock is flesh. If the eyes look away, the iron forgets its name.*
+
+"I cannot go," Kael said. "I am the Watcher."
+
+The Lord sighed, the sound of a man burdened by the foolishness of his inferiors. "I am not asking, Kael. I am commanding. The city needs stone. The city needs water. The city does not need a man watching nothing."
+
+When Kael refused to move, the Lord did not use violence. Violence was crude, and the Lord of Vane prided himself on civilization. He simply stopped sending the Watcher's rations.
+
+"When hunger bites," the Lord said, "reason will prevail."
+
+The first week was hard. The second was a slow, grinding agony. Kael sat on the stone bench, his stomach a hollow ache that made his vision swim. The cold of the iron seemed to seep into his bones, replacing the warmth of the food he did not have.
+
+The citizens of Vane, passing by on their way to the high pastures, looked away. They loved their new Lord. The aqueduct was progressing beautifully; already, the promise of sweet water made the city feel brighter, more modern. They saw Kael not as a guardian, but as a stubborn relic standing in the way of their comfort.
+
+"Just come down, Kael," a woman told him, tossing a half-eaten apple near his feet. "Don't be a fool. The Lord is good. The city is thriving."
+
+Kael looked at the apple. His mouth watered so violently it hurt. But he looked past the apple, down the pass, to the Ashen Wastes.
+
+The grey tide was no longer still.
+
+It was a subtle shift, a movement that the eye caught only when looking away. The dust was swirling, gathering in low, silent drifts that were slowly, inexorably climbing the path toward the Iron Gate.
+
+Because Kael was hungry, because his body was consuming itself, his mind was stripped of the pleasant distractions of a full belly. He saw the Wastes with a terrifying clarity. They were not dead. They were simply waiting for the city to forget them.
+
+The engineers had been right about the iron, but they had been wrong about the magic. The runes on the gate did not hold power simply by existing. They were a covenant, an agreement between the builders and the stone. And a covenant requires two parties. The iron was the promise; the Watcher was the memory.
+
+Kael did not eat the apple. He kept his eyes on the dust.
+
+Months passed. Kael withered. He became a scarecrow of a man, wrapped in rags, his eyes sunken deep into his skull. He survived on the rainwater that pooled in the hollows of the stone bench and the sparse, bitter moss that grew in the cracks.
+
+Down in Vane, the aqueduct was completed. The day the sweet water flowed into the market square, there was a great festival. The Lord was hailed as a savior. There was music, and dancing, and the drinking of clean, cold water.
+
+No one looked up at the pass.
+
+But at the gate, the Ashen Wastes had reached the threshold. The grey dust piled against the black iron, a silent, suffocating pressure. The air tasted of old ash and forgotten things.
+
+Kael felt the cold of the Wastes pressing against his mind. It whispered to him, not with words, but with a feeling of profound, irresistible weariness.
+
+*Rest,* it seemed to say. *Close your eyes. It is so easy. The city does not care. The Lord has forgotten you. You are suffering for nothing. Let it go. Let the silence in.*
+
+The temptation was absolute. It was not a temptation to do evil; it was a temptation to stop doing good. It was the lure of the ultimate efficiency: the cessation of all effort.
+
+Kael’s vision darkened. His chin dropped to his chest. His eyes fluttered shut.
+
+In that instant, the Iron Gate groaned.
+
+It was a sound of immense structural failure, the sound of metal forgetting its shape. The deep runes began to fill with grey dust, smoothing out, losing their edge.
+
+The first tendril of the Ashen Wastes slipped beneath the gate.
+
+It touched the first stone of the path leading down to Vane. The stone instantly turned the color of bone, its strength leached away. The grass beside the path turned to ash.
+
+Kael’s head jerked up.
+
+He saw the grey tendril. He heard the iron groaning.
+
+He understood then the true nature of the sacrifice. The magic of the gate was not a transactional spell, fueled by a specific incantation or a drop of blood. It was fueled by attention. It was fueled by the willingness of a living soul to bear the weight of witnessing the void, to hold the shape of the world together simply by refusing to look away.
+
+He forced his eyes wide open.
+
+He did not have the strength to stand. He did not have the voice to shout. He only had his gaze.
+
+He stared at the tendril of dust. He stared at the groaning iron. He poured every ounce of his failing life into the act of seeing.
+
+*I am here,* he thought, projecting the concept with the last of his will. *I remember the boundary. I remember the iron.*
+
+The grey tendril hesitated.
+
+The iron stopped groaning.
+
+Kael sat there, a dying man holding back an ocean of silence with nothing but the stubbornness of his gaze. He did not ask for a reward. He knew the city below was celebrating, ignorant of the doom that had almost swallowed them. He knew the Lord of Vane would never acknowledge his sacrifice, for it would mean admitting the limits of his own efficient progress.
+
+He watched until the light faded from his eyes entirely.
+
+When the merchants came up the pass the next morning to check the road, they found Kael dead on the stone bench. His eyes were wide open, staring fixedly down the pass.
+
+The Iron Gate stood strong. The runes were sharp and deep. And the Ashen Wastes had retreated, a faint line of grey dust marking the threshold they could not cross.
+
+The Lord of Vane, upon hearing of the Watcher's death, ordered him buried with minimal fuss. "He was a stubborn old man," the Lord said. "But at least the path is clear now."
+
+They did not appoint a new Watcher. They believed the iron was enough.
+
+But they say that the Iron Gate is slowly rusting, despite the dry air. And they say that sometimes, when the wind blows down from the pass, it carries a faint smell of ash, and the sweet water in the new aqueduct tastes suddenly, inexplicably, of dust.
+
+*The iron holds the line of stone,*
+*But eyes must watch the dark alone.*
+*When progress builds its shining wall,*
+*It is the quiet watch that saves us all.*
+*—A verse found etched into the bench beside the Iron Gate.*
