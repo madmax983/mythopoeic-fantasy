@@ -2065,3 +2065,43 @@ The village survived. They did not triumph, for the dead could not be returned, 
 *No glory awaits in the bitter cold,*
 *Only the truth that frail hands hold.*
 *—Fragment of a lament sung in the Vales of Oakhaven.*
+
+---
+
+## The Scribe of the Dust
+
+*Recorded in the marginalia of the Ledger of Oakhaven, written in a hand that grows increasingly frail. It speaks of the years when the successors of the Pale Emissary returned, not with demands for trees, but for words.*
+
+They did not return with drawn blades or torches. They came with fresh ink, pale parchment, and bound ledgers, smelling of pressed lilies and quiet authority. The new magistrate, a man named Silus, spoke softly to the elders of the High Vales. He explained that their ancient speech was a heavy burden, a relic of darker times. He proposed a common tongue, a language of trade and reason, to bring the scattered villages into the embrace of the wider world.
+
+"Why cling to the harsh syllables of the past?" Silus asked, his hands resting lightly on the polished wood of the council table. "Your children stumble over the ancient scripts. Let us simplify. Let us remove the thorns from your speech, that you might converse easily with the merchants of the Sunlit Plains."
+
+It was a gentle argument, cloaked in sensible mercy. The elders, tired of their long isolation and the biting winters, saw no harm in it. The old records were to be collected, copied into the new, smooth tongue, and the originals given to the fire, lest the old ways cause confusion.
+
+Only Fennel, a scribe whose back was bowed from a lifetime of leaning over fragile parchment, resisted. He was no learned sage of the great cities, merely a quiet man who recorded the births of calves, the marriages of farmers, and the shifting of boundary stones. But he knew what the elders, in their weariness, had forgotten.
+
+The old language was not merely a tool for trade; it was the bone and sinew of the world. The deep river crossing was named *Cwm-rhyn*, which meant 'The Stone that Waits Below'. In the new tongue, it was simply 'The Ford'. The mountain pass was *Ael-wynn*, 'The Breath of the Sleeping Mother'. Silus renamed it 'The High Road'.
+
+Fennel watched as the texture of the valley began to thin. When the river crossing became only a ford, the youth forgot to wait for the dry season, and two were swept away by unseen currents they no longer knew to fear. When the mountain pass lost its true name, travelers forgot the reverence it demanded, and the biting winds grew wilder, untamed by the familiarity of the old greeting.
+
+Words were not simple labels; they were pacts.
+
+Fennel did not raise his voice against the magistrate. He knew doubt had already taken root in the hearts of his kin, and obedience to the new order was far easier than the labor of remembering. So, in the dead of night, Fennel took the deepest, oldest ledger—the one that held the true names of the roots, the stones, and the springs—and fled into the crags of the upper mountains.
+
+He was frail, and his breath came shallow and ragged in the high air. The frost bit into his fingers, stiffening the joints that had spent sixty years holding a feather quill. He found a dry cave, a hollow in the chest of the mountain, and there he began to carve the words into the living rock with an iron chisel.
+
+He did not carve for glory. He carved because the truth must be preserved, even if there was no one left to read it. He carved the name of the wind that brought the spring rains, and the name of the soil that forgave the plow. With every strike of the hammer, a fraction of his remaining strength bled into the stone. Magic is not commanded; it is bought, and the coin is always a piece of the life that asks for it.
+
+Silus’s men eventually found him, tracing the dull echo of metal on stone. They found a man who had withered away to mere shadow, his hands bruised and broken, his eyes dim. But the walls of the cave were alive. The words seemed to hold a faint, stubborn warmth against the winter air.
+
+Silus ordered the carvings defaced, but the iron chisels of his guards sparked and shattered against the rock. The names had sunk deep, anchored by Fennel’s final, willing exhaustion. The magistrate turned away, his reasonable face twisted for a moment by a profound and ancient weariness, before he ordered the cave sealed with rubble.
+
+The village below continued to speak the new, smooth tongue. The merchants came, and a modest wealth slowly trickled into the vales. But in the quiet hours, when the wind howled through the passes, the elders would sometimes pause, an ache in their chests for a song they could no longer hum.
+
+Fennel was forgotten by all but the stones. Yet, beneath the earth, the names held fast. The mountain did not forget. The river did not forget. The world remembered itself, anchored in the dark by the sacrifice of a frail man who had simply refused to let the truth be smoothed away.
+
+*There is a silence that follows the loss of a word,*
+*A hollow space where a bridge of breath once stood.*
+*We trade the jagged stone for a polished lie,*
+*And wonder why the earth no longer answers.*
+*—Marginalia found in a fragmented ledger, origin unknown.*
