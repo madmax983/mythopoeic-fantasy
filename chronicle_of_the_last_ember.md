@@ -2065,3 +2065,85 @@ The village survived. They did not triumph, for the dead could not be returned, 
 *No glory awaits in the bitter cold,*
 *Only the truth that frail hands hold.*
 *—Fragment of a lament sung in the Vales of Oakhaven.*
+
+---
+
+# The Baker of the Bitter Loaf
+
+*A tale sung by the hearth-wives of the High Crags, long after the stones of the great oven had gone cold.*
+
+The village of Nael was nestled in the lap of the whispering pines, a place of soft light and sudden shadows. To the north of the village lay the Maw, a deep tear in the earth that the elders said was a scar from the First Breaking. It did not speak, but it breathed—a slow, foul exhalation that smelled of cold iron and old grief.
+
+Aris was the village baker. His hands were perpetually dusted with flour, his eyes permanently crinkled from the heat of the great brick oven. He baked the honey-cakes for the spring festivals, the heavy waybread for the hunters, the soft, white loaves for the nursing mothers.
+
+But the first loaf drawn from the oven each morning was not for the living. It was the Bitter Loaf.
+
+Aris baked it in the darkest hours before dawn. He used no yeast and no honey. He mixed the coarsest flour with the ash from his hearth and the salt of the deep mines. He kneaded it until his shoulders ached, shaping a loaf that was hard as stone and black as a starless night.
+
+When it was done, Aris would carry it up the rocky path to the edge of the Maw and cast it into the chasm.
+
+He did not know the magic of it. He only knew the law of the bakers who had stood at the oven before him. "The Maw must be fed," his master had wheezed on his deathbed. "Not with what is sweet, but with what is endured."
+
+The new Lord of the Valley, a young man who had learned his letters and statecraft in the bright, logical cities of the South, watched this ritual and frowned.
+
+"It is a waste of labor," the Lord said, his cloak of dyed wool spotless in the morning mist. "Even the husks could feed the swine. And it is a dark, superstitious thing to throw our strength into a hole in the ground. The Maw is merely a geological fault. We are a people of the light now. We look upward, not downward."
+
+"It is the debt," Aris said, keeping his eyes on his flour-dusted boots. "The earth gives us the wheat, but the tear in the world must be acknowledged. The Bitter Loaf remembers the brokenness."
+
+The Lord laughed, a reasonable, efficient sound. "We will build a wall around the Maw. We will plant climbing roses over the stones. We will not dwell on the ugly things. We will conquer them with beauty."
+
+The Lord issued a decree forbidding the baking of the Bitter Loaf. Aris, a simple man who knew only the turning of the seasons and the heat of the fire, did not argue with Lords. He was obedient to authority. He ceased the dawn ritual. He baked only sweet and useful bread.
+
+The Maw was walled off. The roses grew quickly, covering the grey stones with vibrant reds and pinks. Months passed. The village was prosperous. The people forgot the smell of the cold iron and the grief.
+
+But slowly, the bread began to change.
+
+Aris used the same golden wheat, the same pure water from the mountain spring, the same lively yeast. But the bread did not rise. It emerged from the oven heavy, dense, and lifeless. The honey-cakes tasted like clay. The waybread crumbled to dust in the hunters' packs.
+
+The children ate, but they were not nourished. Their cheeks lost their color. The village grew quiet, wrapped in a creeping, heavy weariness that no amount of sleep could cure. The people moved like shadows, their laughter hollow.
+
+Aris went to the Lord's manor. "The bread has forgotten how to give life," he said, holding out a dense, grey loaf.
+
+"Nonsense," the Lord replied, though his own face was drawn, and the rings on his fingers hung loose. "It is a blight in the soil. A bad wind. We must dig new wells and fertilize the fields."
+
+But Aris knew. He walked up the rocky path to the wall that surrounded the Maw. The roses had bloomed magnificently, but they had no scent. The wall was pristine, but the air around it felt thin and desperately cold.
+
+The Maw was not just a crack in the rock. It was the hunger of the broken world.
+
+By denying it the Bitter Loaf, by hiding the wound beneath pretty flowers, the Lord had not filled the hunger. He had only displaced it. Deprived of the sacrifice of endurance, the Maw had begun to feed on the joy and vitality of the village instead.
+
+Aris did not ask permission. That night, he returned to his bakery. He swept the very last of his flour from the bins. He gathered the ashes from the cold corners of his oven. He wept as he worked, and he caught his own tears to salt the dough, pouring his exhaustion, his fear, and his sorrow into the basin.
+
+He baked the Bitter Loaf. It was heavier than any he had ever made, a dense, dark stone of grief.
+
+He carried it up the path. He was an old man, and the Lord’s wall was high, built of smooth, mortared stone. He could not climb it.
+
+"Courage arrives late," he whispered to the silence.
+
+He set the loaf down and began to dismantle the wall with his bare hands.
+
+He had no tools. He clawed at the mortar with his fingers. The stones were heavy, bound tight by the Lord's good intentions. Aris tore his nails. His fingers bruised and bled. But he worked through the long, freezing night, driven not by a grand vision of saving the world, but by a desperate, unquestioning obedience to the old truth he had abandoned.
+
+As he wrenched the last cornerstone away, the foul, iron breath of the Maw rushed over him. It was terrible, stripping the warmth from his bones. But it was *real*. It carried the crushing weight of the world's ancient sorrow, unmasked and undeniable.
+
+Aris did not turn away. He stood at the edge, holding the black, heavy loaf against his chest.
+
+"We remember," he said into the absolute dark. "We are broken, and we remember."
+
+He dropped the loaf into the chasm.
+
+He did not hear it hit the bottom. But he felt a sudden, profound shift in the air. The oppressive, leaching weariness lifted from his shoulders. The hunger of the Maw, acknowledged and answered with the non-transactional sacrifice of the Bitter Loaf, receded into the deep places of the earth.
+
+The next morning, the dough rose in the wooden troughs, light and full of promise. The smell of baking bread filled the village, rich and sweet, waking the children from their lethargy.
+
+The Lord came to the ruined wall, his guards behind him, angry and proud. But when he saw Aris, slumped in sleep by the edge of the open chasm, his hands ruined and bleeding, the Lord fell silent. He looked at the deep, dark wound in the earth, and he looked at the torn roses.
+
+He understood then that some wounds cannot be covered with beauty. They must be fed with the truth.
+
+They say the wall was never rebuilt. And Aris the Baker died a poor man with crooked hands, for he had given his best strength to a loaf that no one would ever eat. But the people of Nael never again took the sweet bread for granted, for they knew the price of the bitter crust that held the dark at bay.
+
+*The sweet may sing upon the tongue,*
+*When days are bright and years are young.*
+*But joy will rot and turn to dust,*
+*If we forget the bitter crust.*
+*—A song of the Hearth-Wives of Nael.*
